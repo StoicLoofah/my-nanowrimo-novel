@@ -10,19 +10,6 @@
 * premise
 	* entering high school freshmen gains ability to rewind time
 	* how does freshmen year proceed with it?
-* events
-	* prove it by "predicting the future"
-	* what is forbidden?
-		* monetary gain
-		* retaking a test
-		* hurting someone
-	* what is fair game?
-		* studying more
-		* fixing minor mistakes (e.g. tripping over shoelaces)
-	* learn how to control it
-		* initially can't control it, but learns to
-		* probably something funny in going forwards backwards too much
-		* very disorienting to go backwards through time
 * plot points
 	* romantic relationship
 		* he can do everything perfectly for a girl
@@ -40,3 +27,24 @@
 	* really exhausting
 		* probably doing twice as much stuff in a day
 		* pretty stressful feeling the need to fix everything
+* high school events
+	* freshmen formal
+	* exams
+	* finding your way around the school
+		* being tardy to class
+	* parties
+	* something about family time
+* story events
+	* prove it by "predicting the future"
+	* what is forbidden?
+		* monetary gain
+		* retaking a test
+		* hurting someone
+	* what is fair game?
+		* studying more
+		* fixing minor mistakes (e.g. tripping over shoelaces)
+	* learn how to control it
+		* initially can't control it, but learns to
+		* probably something funny in going forwards backwards too much
+		* very disorienting to go backwards through time
+		* tests it by watching dice roll over and over again

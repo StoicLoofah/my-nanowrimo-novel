@@ -22,3 +22,9 @@
 	* time is flexible
 	* time is fluid
 	* learn to live with consequences
+	* see time_rewinder.md
+* road trip
+* story of a pnp RPG group?
+	* alternate chapters in and out of the world
+	* players develop in and out of the game
+	* see dnd.md

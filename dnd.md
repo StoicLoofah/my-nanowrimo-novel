@@ -1,14 +1,3 @@
-* character groups
-	* DM (male)
-	* classic (dnd)
-		* warrior (male)
-		* thief (female)
-		* cleric (male)
-		* mage (female)
-	* modern (mmo)
-		* tank (male)
-		* support (female)
-		* damage (male)  
 * narrative style
 	* out-of-game
 		* not included?
@@ -18,7 +7,7 @@
 		* all in-world
 			* maybe cut out for critical moments
 		* discuss it as the out of world
-		* 
+	* shoot for 20-ish chapters?
 * motivations
 	* why do people play dnd?
 		* mathy nerds into the numbers
@@ -26,45 +15,53 @@
 		* actors like the practice
 		* loners (don't use this one)
 		* closet nerds
-	* DM
-		* out-of-game
-			* in a pretty serious long-term relationship
-			* things start looking rough as he wants to go somewhere else for school
-		* in-game
-			* feels a lot of fulfillment in coming up with a world and playing it out
-			* may take his frustrations out on the players
-			* trying to assert control
-				* railroading the players
-	* tank - Male Halfling Fighter (Lawful Good)
-		* out-of-game
-			* bit of a joker
-			* maybe a little insecure?
-		* in-game
-			* character choice is like self
-			* doesn't get a lot of respect
-			* tries to cover it up with humor
-	* support - Female Human Druid (Neutral Good)
-		* out-of-game
-			* math nerd in it for the numbers
-			* socially is fine
-			* a lot of pressure in school?
-			* trying to find balance in her personal life
-		* in-game
-			* character choice represents one's desire
-			* trying to keep the world in balance
-	* damage - Male Elf Rogue (Chaotic Evil)
-		* out-of-game
-			* athlete (tennis? basketball?)
-			* some sort of soul-searching?
-			* family problems
-				* trying to figure out how he can leave his family behind
-				* scholarship will take him far away
-			* growth opportunity
-				* he is a team player
-				* how can he learn to play evil?
-		* in-game
-			* character choice is unlike self
-			* amassing massive amounts of wealth
-			* causing a lot of chaos
-			* maybe hints that it's for some unrevealed purpose
-		
+* running dnd jokes
+	* problems not having a wizard in the group
+	* PCs consistently do the wrong thing
+		* miss a lot of clues in the world
+	* PCs misremember a lot of names
+		* always get the wrong name for the innkeeper
+* game plot
+	* history
+		* been playing this game for years
+		* chasing a demon through all sorts of trials
+			* think of amusing things to throw in as references to past events
+	* current goal
+		* discovered critical weakness in the demon
+		* combining these elements will trap the demon and allow them to defeat the demon
+	* final twist
+		* the objects do nothing
+		* cheesy: it's about how they have grown and developed from their experience, not the artifacts they pick up along the way
+		* they were hints dropped that delayed our heroes
+		* massive destruction to the world
+		* even if they survive, everything will be different
+* in-game
+	1. start deep in a dungeon
+		* going after the Ruby of Eternal Light
+		* something absolutely ridiculous happens with a trap
+		* they fail to get it and are scolded for it
+	2. back to town
+		* reader finds out what the big quest is
+		* some kerfuffle around town
+	3. beginning of the forest quest
+		* should lead into Darella's background
+		* take an important spiritual relic
+	4. end of the forest quest
+		* some resolution to the choice
+	5. beginning of the heist quest
+		* should lead into Mareak's background
+		* rob an important treasure from a shah's palace
+	6. end of the shah's quest
+	7. beginning of the planar quest
+		* should lead into Yenhorn's background
+		* physical equipment doesn't work
+	8. end of the planar quest
+	9. Personal challenges
+		* 1:1 with each player
+		* make them confront the choices from their section
+		* a challenge to the DM as well
+			* something goes unexpected, and he has to allow the players to do their thing
+	10. Final battle
+		* lots of spawned monster
+		* some kind of trick in making it work
+		* wrap up in town

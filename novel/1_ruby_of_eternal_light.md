@@ -1,3 +1,6 @@
+1. Ruby of Eternal Light
+========================
+
 "I can't find any traps." Mareak stood up, and his face reappeared in the flickering light before the door. He wiped some dust off of his fingers as he walked back to his 2 fellow adventurers. "It doesn't help that you lost my kit of thieves' tools earlier, but hey: you're going through first anyways, so I'm sure the gods will be just."
 
 "I told you already: I didn't lose them. I thought the gnome was very trustworthy, and he will bring them back." Yennhorn leaned his short sword against the stone wall and cast his torch forward again. He carefully stepped up to the door, listened for a moment, then slammed his body against it. The wood popped, and the door crumpled open. "It's just another empty room." He walked back, picked up his short sword, then stepped through into the next chamber.

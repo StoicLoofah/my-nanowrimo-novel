@@ -36,32 +36,88 @@
 		* massive destruction to the world
 		* even if they survive, everything will be different
 * in-game
-	1. start deep in a dungeon
+	1. start deep in a dungeon (august)
 		* going after the Ruby of Eternal Light
 		* something absolutely ridiculous happens with a trap
 		* they fail to get it and are scolded for it
-	2. back to town
+	2. back to town (september)
 		* reader finds out what the big quest is
 		* some kerfuffle around town
-	3. beginning of the forest quest
+	3. beginning of the forest quest (october)
 		* should lead into Darella's background
 		* take an important spiritual relic
-	4. end of the forest quest
+	4. end of the forest quest (november)
 		* some resolution to the choice
-	5. beginning of the heist quest
-		* should lead into Mareak's background
-		* rob an important treasure from a shah's palace
-	6. end of the shah's quest
-	7. beginning of the planar quest
+	5. beginning of the planar quest (december)
 		* should lead into Yenhorn's background
 		* physical equipment doesn't work
-	8. end of the planar quest
-	9. Personal challenges
+	6. end of the planar quest (january)
+	7. beginning of the heist quest (february)
+		* should lead into Mareak's background
+		* rob an important treasure from a shah's palace
+	8. end of the shah's quest (march)
+	9. Personal challenges (april)
 		* 1:1 with each player
 		* make them confront the choices from their section
 		* a challenge to the DM as well
 			* something goes unexpected, and he has to allow the players to do their thing
-	10. Final battle
+	10. Final battle (may)
 		* lots of spawned monster
 		* some kind of trick in making it work
 		* wrap up in town
+* out-of-game
+	1. september (intro)
+		* school started
+		* Linsday sees that HC is on the same day as Math regionals
+		* Wayne is doing college applications
+		* Drew does debate; excited for the new year
+		* Carl talks about his girlfriend leaving for college, also excited to follow
+	2. october (lindsay, )
+		* everyone is just meshing
+		* Linsday doesn't know what to do for that day
+		* Wayne working through essays
+		* Drew is still prepping
+		* Carl shares stories about his girlfriend at college
+	3. november (lindsay, )
+		* HC
+		* Linsday didn't end up going to HC 
+		* Wayne finished up college applications
+		* Drew does well at a tournament but is overshadowed
+		* Carl's girlfriend came back, and they went to HC together
+	4. december (drew, carl)
+		* thanksgiving break
+		* Linsday is anxious about the upcoming meet
+		* Wayne does well at state cross country
+		* Drew is anxious for a major tournament on the circuit
+		* Carl is a little worried about how's she was talking over thanksgiving; looking forward to winter break
+	5. january (drew, carl)
+		* winter break
+		* Linsday comes back triumphant
+		* Wayne talks about family problems
+		* Drew fails to gain enough points
+		* Carl did not go well over january
+	6. februrary (wayne, carl)
+		* sadie
+		* Linsday
+		* Wayne
+		* Drew is maybe still a little down, but is resolving his failure
+		* Carl and his girlfriend are broken up by valentine's day
+	7. march (wayne)
+		* spring break!
+		* Linsday
+		* Wayne is very anxious about college acceptance
+		* Drew helps the champion prep more
+		* Carl bounces back a little bit
+	8. april (everyone)
+		* college acceptances mailed out
+		* Linsday
+		* Wayne is doing college visits
+		* Drew comes back strong
+		* Carl
+	9. may (everyone)
+		* 
+		* Lindsay ended up going to nationals
+		* Wayne chooses to leave for school
+		* Drew finishes strong is resolved to do better next year
+		* Carl is leaving for school–soon
+	10. epilogue? Nah

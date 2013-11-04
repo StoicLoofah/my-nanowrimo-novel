@@ -5,3 +5,4 @@
 	* run by Brickboard
 * Sideways tower
 	* owner is Feenious
+* Malafar is the demon

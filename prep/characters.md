@@ -14,7 +14,7 @@
 	* Carl
 	* out-of-game
 		* senior 
-		* in a pretty serious long-term relationship
+		* in a pretty serious long-term relationship (Marie)
 		* things start looking rough as he wants to go somewhere else for school
 	* in-game
 		* feels a lot of fulfillment in coming up with a world and playing it out

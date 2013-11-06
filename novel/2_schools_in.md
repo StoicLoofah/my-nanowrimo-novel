@@ -21,7 +21,7 @@ Drew reached the top of the stairs, which opened into a game room, where 3 other
 
 "I hear you." Carl leaned back into his big comfy chair with his laptop in front of him and talking while typing. "At least you have interesting things to write about with cross country and all. I'll bet the scholarships will help, too. I feel like I need to make up a campaign for my own life just to write a decent story."
 
-"But don't you already know where you want to go, Carl?" Linsday asked. Carl looked up quickly, nodded, then looked down again. "How is Marie doing, anyways?"
+"But don't you already know where you want to go, Carl? Longhorn for life, right?" Linsday asked. Carl looked up quickly, nodded, then looked down again. "How is Marie doing, anyways?"
 
 "She's good. She loves it at A&M."
 

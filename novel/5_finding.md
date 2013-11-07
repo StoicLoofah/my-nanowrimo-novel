@@ -47,3 +47,16 @@ Folkwood Forest was a 3 day walk from Ryden, and the party took it leisurely. Ha
 
 "Oh my, is that Dungeon Investigators Inc. I see?" asked an old woman behind the desk, squinting through her glasses.
 
+"Hi, Miranda. It's so good to see you again," said Mareak warmly. He walked over to the desk and gave her frail body a gentle hug. "Please tell me you have the heroes suite available right now." She winked at him and reached under the desk. She grabbed a keyring, jingled it, and handed it over to Mareak. "You're a saint, you know that? We're going to drop our things off in the room and come back down, and then you can tell me all about your grandchildren." The others picked up their gear and headed for the stairs with Mareak.
+
+"You know," started Yannhorn, "one day, she is going to find out one day that her husband didn't die valiantly fighting at your side, and that you actually backstabbed him."
+
+Mareak just shrugged and continued walking without a word.
+
+After they had taken off their gear and rested their feet from the walk, they went back down for dinner, where meatloaf and ale were being served. Since the Burned Skillet was at a border, it attracted a variety of people: hunters from the forest, dwarves coming up the royal trade route, occasional more wild species, and everything in between. The party enjoyed many stories as the bard was out sick, and other patrons were taking turns on stage. The mood was generally festive, but the evening continued on, and by the end, the party was one of the few groups left, and they sat sipping their last pints in a corner with a ranger, Brendel.
+
+"So you have told me many stories of your past journey, but not why you have come here now," Brendel observed. "Please, enlighten me."
+
+The party, previously talkative and excited, turned serious with the question and looked at each other for guidance.
+
+"No matter," said Brendel.

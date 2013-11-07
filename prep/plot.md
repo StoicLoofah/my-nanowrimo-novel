@@ -46,6 +46,8 @@
 	3. beginning of the forest quest (october)
 		* should lead into Darella's background
 		* take an important spiritual relic
+		* maybe a branch? Or a tree? 
+		* band of gnolls against a band of humans
 	4. end of the forest quest (november)
 		* some resolution to the choice
 	5. beginning of the planar quest (december)

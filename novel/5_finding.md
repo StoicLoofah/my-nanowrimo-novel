@@ -177,3 +177,34 @@ Yannhorn spoke before the others had time to consider it. "Consider that a deal.
 
 ---
 
+"What's going on?" whispered Darella. Mareak ducked back down into a crouch and rejoined Darella and Yannhorn hiding behind a log.
+
+"I see maybe 4 gnolls down there," whispered Mareak back at them. "These guys are the real deal. Faces like dogs, furry all over, probably a head taller than myself, and they all have axes and armor."
+
+"Do you think we can get around them?" asked Yannhorn.
+
+"Probably not, unless you want to walk a few miles out of the way, and we'll probably come across another group. I think we're deep in gnoll territory right now. Our best bet is to take them down fast." Mareak looked at them for approval.
+
+"Yeah, I think we can do that," Yannhorn said. "Mareak, if you can sneak to the side of them and draw their attention, I can close the gap. We can try to hit them at once." Mareak nodded slowly, then scampered off quietly.
+
+Yannhorn took a couple deep breaths, then popped his head up to look at the gnolls. They hadn't moved much since they first saw them in the distance, but they didn't look unready, either. He quietly unsheathed his sword and readied his weapon.
+
+"We're going to give these gnolls hell, right?" Darella asked. She held her club ready. Yannhorn gave her a thumbs up, then popped his head up to look again. On the far side of the gnolls, he saw Mareak poking his head around a tree trunk. He gave him the thumbs up too, then Mareak disappeared. They heard a crack come from Mareak's direction, and the gnolls all turned to look. The apparent leader barked something in some guttural language, and they began to approach Mareak. At that moment, Yannhorn hopped over the log and began charging down towards the gnolls.
+
+Mareak dashed out from behind the tree, and the gnolls looked at him and began to pursue. With his downhill momentum, however, Yannhorn caught up first and caught a gnoll in the back with a pointed sword. His blade went through both sides of the gnoll's armor, and the both tumbled forward. Darella came up right behind Yannhorn and delivered a club hit to another gnoll's head, and he let out a yipp.
+
+The gnolls turned back to their actual assailants and swung their axes. Darella sidestepped to avoid a slash, and Yannhorn, with his sword still lodged in the other gnolls, threw his shield up to block the axe. He took the hit and used the momentum to pull his sword out and get back to his feet.
+
+The gnoll Darella first hit took a wild, disoriented swing causing Darella and another gnolls to both dive for cover. While on the ground, however, the gnoll was attacked by Mareak who dived on him with two dagger and applied the coup de grace.
+
+Seeing two of his allies go down so quickly, the lead gnoll barked again, and he and his remaining ally turned to run. Darella reached into her pouch and tossed something at the tailing gnoll. Vines sprung from the ground and tangled up the gnoll's feet. He tripped and fell to the ground, and Mareak sprung on him as well.
+
+"Don't let the last one get away!" yelled Yannhorn as he watched the gnoll run. The three of them began to pursue, charging through the forest. "He'll warn all of them!"
+
+Then, the gnoll stopped 10 yards away from them and turned as though to fix. The three others stopped together and looked for an opportunity to attack. The gnoll snarled and began to slowly step to his right to find a better position.
+
+"Put your weapon down, buddy, and we'll be lenient," suggested Mareak. The gnoll didn't react and continued to strafe. He gestured with his axe for them to come at him. "Alright, you are literally asking for it, buddy."
+
+The three of the charged forward, but as they made it half way, they felt a string snap beneath them, and a net rose from the ground and hoisted them into the air. The three of them fell awkwardly into the net, with limbs and heads splayed out. Suspended 10 feet in the air, they slowly rotated, and they saw the gnoll step underneath them. He panted a couple times in laughter, then pulled a whistle out of his belt, which he blew.
+
+"This is definitely your fault," said Yannhorn.

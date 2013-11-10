@@ -48,7 +48,13 @@
 		* take an important spiritual relic
 		* maybe a branch? Or a tree? 
 		* band of gnolls against a band of humans
+		* the lesson should be that, despite your misgivings, you must have balance
+			* the druid circle will be gone
+			* darella will want revenge on one side, to wipe them out
+			* needs to realize that the best course is for balance
+		* captured at the end of it
 	4. end of the forest quest (november)
+		* the "good" of the knolls is that they too protect the forest, in a sense
 		* some resolution to the choice
 	5. beginning of the planar quest (december)
 		* should lead into Yenhorn's background

@@ -89,9 +89,14 @@
 	3. november (lindsay, )
 		* HC
 		* Linsday didn't end up going to HC 
+			* no one else saw her there
+			* she qualified for the state competition
+			* Drew gives her a hard time about some of her friends missing her
 		* Wayne finished up college applications
+			* pretty excited to see how those turn out
 		* Drew does well at a tournament but is overshadowed
 		* Carl's girlfriend came back, and they went to HC together
+			* they enjoyed it
 	4. december (drew, carl)
 		* thanksgiving break
 		* Linsday is anxious about the upcoming meet

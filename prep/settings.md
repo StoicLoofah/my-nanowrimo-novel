@@ -1,3 +1,4 @@
+* Group is Dungeon Investigators Inc.
 * Kingdom of Shermland
 	* the people are Shermish?
 	* all action is focused around Ryden
@@ -6,3 +7,13 @@
 * Sideways tower
 	* owner is Feenious
 * Malafar is the demon
+* Folkwood Forest  
+	* Burned Skillet is just outside
+		* owner is Miranda
+		* meet the ranger Brendel
+	* Oakfoot is the main dryad
+	* Aralynn is the great druid who is gone
+	* searching for the Seed of Eternal Spring
+	
+* Mrs. Brown is the head of the math club
+	* Rick asked Linsday to go to HC

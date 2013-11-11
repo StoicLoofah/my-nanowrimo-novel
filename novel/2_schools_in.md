@@ -41,7 +41,7 @@ Drew reached the top of the stairs, which opened into a game room, where 3 other
 
 "That's tough luck," added Wayne. "Well, you're going to have to do it some year. I promise it'll be a ton of fun. I'm sure one of your nerdy friends will ask you so you can all go in a group." Linsday didn't react much to this last comment. Trying to cover up the awkward situation, Wayne turned to Carl. "Should we start?"
 
-"Yes. One second. I just need to finish writing down my last thoughts for this adventure." Carl typed for another minute before looking up. "Okay, we're good to go. Everyone have their character sheets?"
+"Yes. One second. I just need to finish writing down my last thoughts for this adventure." Carl typed for another minute before looking up. "Okay, we're good to go. Everyone have their character sheets? Everyone ready for this month's roleplaying session?"
 
 "Yannhorn is good to go," said Drew, finally finding and pulling out a piece of paper from the pile.
 

@@ -63,7 +63,7 @@ Lyhrfl laughed. "Oh no, young halfling. You shall dine with me at the main table
 
 "So Lyhrfl, I noticed that you speak Common without much of an accent. Consider me surprised," said Mareak.
 
-"Well, that's because I'm actually a human in a gnoll's guise," Lyhrfrl said looking over his shoulder.
+"Well, that's because I'm actually a human in a gnoll's guise," Lyhrfl said looking over his shoulder.
 
 "Hah. Wait, what?" Mareak squinted to take a close look at Lyhrfl in the dark, then a few of the gnolls laughed.
 
@@ -136,3 +136,52 @@ Before the gnoll could react, Mareak stabbed at both of his legs and danced away
 "What's the gnoll word for 'mercy'?," he asked.
 
 ---
+
+The party sat in Lyhrfl's personal tent with Lyhrfl and the other gnoll from the raised table who they had since learned was his wife. The ground was covered with a variety of rugs, and they lounged comfortably.
+
+"That was amazingly bold," said Darella. "Really stupid, too, but I'm glad you made it." Mareak held his hand out for a high five, which Darella reluctantly gave him. 
+
+"Bold move, indeed," Lyhrfl said with some admiration in his dark eyes. "You have earned much respect within the tribe in a short time. But we must talk as I feel as though I must convince you to act otherwise, or else I myself may lie dead in my own tent at the hands of an elf with a table leg.
+
+"So I am open to you. Please, ask me what you will."
+
+The party was caught offguard by his open-minded attitude and had not prepared questions. Darella jumped in first.
+
+"Justify yourself. Despite your upbringing and knowledge, you continue to attack bordering communities and the dryads. You have exploited the absence of the druids, and your behavior has threatened the stability of the entire forest!" The room quickly became tense.
+
+"Curious," Lyhrfl responded. "I would have thought that the druid of the group would best understand the importance of balance in this circumstance. Please, tell me honestly: do you think Folkwood would be better off with the gnolls gone?"
+
+"Yes! How can the forest live in balance when you fight with the dryads, the only caretakers left?"
+
+Lyhrfl nodded slowly, then turned to Yannhorn and Mareak. "Perhaps the two of you can provide the insight needed to understand this circumstance. Please, answer some questions for me. First, what did you see coming into our camp? Are we thriving?"
+
+Darella glared at the other two, sensing betrayal coming, but remaining silent.
+
+"No," said Yannhorn. "To be frank, it seemed like you guys are kind of in rough shape with the dilapidated huts."
+
+"And what about the dryads? How are they doing?"
+
+"They seem well," said Mareak. "They were very happy about how much their young were growing because of the Seed of–oops." He cut himself off. "I said nothing."
+
+"No matter," said Lyhrfl. "If I didn't know of the Seed of Eternal Spring, you are right to be concerned. But the point is clear. Since the druids left, the dryads have fluorished, and we have suffered. If the druids were striving for balance, you can see in what direction they needed to push.
+
+"Now, consider if the dryads had free rein and protection of the forest. How would that affect the humans?"
+
+The party thought about this for a moment and had no answers.
+
+"Well, here's a proposal for you," said Lyhrfl. "Accept my bias: the dryads would force the humans out, never allowing them to tap into the forest's resources. You can use your imagination as to how the Shermish king and politics may change were that to happen.
+
+"And a final point: we do indeed raid human communities along the forest borders. What would happen if we were to stop?"
+
+"They would grow stronger," said Mareak. "Without the threat of your attacks, the trappers and lumberjacks could be even more effective."
+
+"Indeed. So perhaps you can see how delicate of a balance we have here," said Lyhrfl. Darella sat with her arms crossed looking away, but she was still listening.
+
+"Okay, I think I get it," said Mareak. "So where do we come into this? Why explain all of this to us? Or is this some evil overlord thing where you tell us all of your secrets before planning to kill us?"
+
+"Not at all," said Lyhrfl. "My proposal is simple: leave tomorrow at sunrise. Consider what you have heard and what you might do. Come back to us, and you will get what you present. The gnolls will be friends if you act as friends, but there will be no mercy should you threaten us again. Otherwise, choose your own path, and accept the consequences of your actions on yourselves, the gnolls, the dryads, the people, and the forest as a whole."
+
+The fire cracked and popped in the corner while he looked seriously at all three. His wife remained silent but similarly stared to lend support to his point. After some thought, they began to talk again about other topics, and an hour later, they retired for the night. Lyhrfl sent for an escort to take them to their guarded tent. Yannhorn went to sleep, while Mareak lay awake as first watch. Darella sat awake, trying to meditate, but found no peace in her thoughts.
+
+
+

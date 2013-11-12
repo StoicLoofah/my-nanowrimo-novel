@@ -23,7 +23,7 @@ Yannhorn rubbed his forehead then spoke. "Okay, so we're here like you asked us 
 
 "As I mentioned last time, our confrontation with Malafar is near, and you must carry items with great energy from the material plane with you. It's hard to know exactly what the nature of these types of objects are, but I believe that one of them is quite near in the Folkwood Forest."
 
-"Oh, I love Folkwood. The druid circle there is quite friendly," Darella said excitedly.
+"Oh, I love Folkwood. The druid circle there is quite friendly," Darella said excitedly. "Of the druids I have met, I believe they are some of the truest to the central tenet of balance in the world, that good and evil, lawfulness and chaos, must never overcome the other, or risk the stability of everything."
 
 "Yeah, quite friendly to other druids. I remember spending an entire adventure in a cage trying to determine if the mouse in the cage with me was a polymorphed druid I was supposed to befriend, or just a mouse," lamented Yannhorn. 
 

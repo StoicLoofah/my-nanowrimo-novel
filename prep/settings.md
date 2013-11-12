@@ -14,6 +14,9 @@
 	* Oakfoot is the main dryad
 	* Aralynn is the great druid who is gone
 	* searching for the Seed of Eternal Spring
+	* Lyhrfl is the lead 
 	
 * Mrs. Brown is the head of the math club
 	* Rick asked Linsday to go to HC
+* Drew's debate partner is Christie
+	* Jimmy and Mario are the top pair

@@ -181,7 +181,144 @@ The party thought about this for a moment and had no answers.
 
 "Not at all," said Lyhrfl. "My proposal is simple: leave tomorrow at sunrise. Consider what you have heard and what you might do. Come back to us, and you will get what you present. The gnolls will be friends if you act as friends, but there will be no mercy should you threaten us again. Otherwise, choose your own path, and accept the consequences of your actions on yourselves, the gnolls, the dryads, the people, and the forest as a whole."
 
-The fire cracked and popped in the corner while he looked seriously at all three. His wife remained silent but similarly stared to lend support to his point. After some thought, they began to talk again about other topics, and an hour later, they retired for the night. Lyhrfl sent for an escort to take them to their guarded tent. Yannhorn went to sleep, while Mareak lay awake as first watch. Darella sat awake, trying to meditate, but found no peace in her thoughts.
+The fire cracked and popped in the corner while he looked seriously at all three. His wife remained silent but similarly stared to lend support to his point. After some thought, they began to talk again about other topics, and an hour later, they retired for the night. Lyhrfl sent for an escort to take them to their guarded tent. Yannhorn went to sleep, while Mareak sat awake for first watch. Darella tried to meditate, but found no peace in her thoughts.
 
+---
+
+Darella woke up the others at sunrise at the end of her watch. She had slept some during the middle of the night, but she was eager for the new day and a reason to be awake other than worry.
+
+They stepped outside, where Lyhrfl's wife greeted them and brought clean water. The party talked briefly with her before she left to continue her usual chores.
+
+"Again, we meet," they then heard a familiar voice call out. Their captor gnoll approached with several other gnolls who carried the party's gear. "Your thingz," he said, and they set the items in front of the party.
+
+"Can we put them on?" Darella asked. The gnoll nodded, but pointed at the weapons and shook his head. A gnoll scooped those back up, but the party equipped themselves with the rest of it.
+
+"Hey, I'm a little short on gold here," Mareak remarked as he checked through his sack. The gnoll gave him a toothy grin but said nothing.
+
+"Hurry, we go," said the gnoll as they finished adjusting their armor. "Follow," he said and started walking away. Several other gnolls came up and prodded the party forward. They then began their walk back out of the gnoll camp.
+
+They had walked for a half-hour in silence when Yannhorn broke the silence. "So what's your name?"
+
+"Hard to say," the captor gnoll said. "Call me Bob."
+
+"Pleasure to meet you formally, Bob," Yannhorn replied. "So Lyhrfl said he learned Common from a human prisoner. Did you learn Common from the same guy?"
+
+"No," he replied. "Bob was prizzzoner. Learned fast from humanss..."
+
+"Oh, I'm sorry to hear that." Yannhorn did his best to fake empathy with Bob. As they continued to walk, Yannhorn continued to chat with Bob and learned about Bob and gnoll culture. Although neither Mareak nor Darella spoke, they both eavesdropped with great interest. 
+
+None of them knew what both Bob was leading them on until he pointed out the trap they had stepped onto just the day before. He laughed again and continued walking past it. Soon, Bob signaled for a stop and turned to address them.
+
+"We done," he said. "Keep movving." He pointed forward, and the party nodded at him. Bob barked at the gnolls, and they turned around to head home.
+
+Before they started moving, however, Bob sniffed a few times, then raised his hand for them to stop. He brought his axe to the ready position.
+
+"What's up, Bob?" Yannhorn asked. Bob ignored him and took a few steps off to the side. He looked to be moving somewhat leisurely, then he swung his axe hard into a tree beside him.
+
+The entire tree shook as Bob cut deep into its trunk. It's branches flailed, and the tree came to life and backed away from Bob. Bob also retreated back to the gnolls, and within seconds, the party saw a group of dryads assemble around them to face the gnolls.
+
+"Leave now, and you can fight another day," said a dryad. Darella recognized the voice as Oakfoot's and looked to see him with his branches ready to fight. 
+
+Bob snarled and signaled for his gnolls to prepare themselves.
+
+"Wait!" cried Darella. "You don't have to fight! We can work this out!"
+
+Bob looked squarely at Darella and spoke. "Then you have learned nothinggg..."
+
+Bob launched himself forward towards the dryads, and his band of gnolls followed.
+
+The fight began around the party, with branches being cut off and gnolls being thrown back. Darella tried to restrain a dryad, and Mareak tried to get himself between the fighters, but Yannhorn froze. Within a minute, the battle was over, and the gnolls lay dead across the forest floor. Several dryads stood wounded, but Oakfoot appeared to be unharmed.
+
+"Take your things," said Oakfoot. "Let's go before more gnolls appear."
+
+Darella and Mareak quickly grabbed their weapons. Yannhorn went take his, but his eyes wandered back to Bob, whose body was badly mangled a few feet away. He uttered a prayer to his god, then ran to catch up with the rest of the group.
+
+---
+
+"So you were unsuccessful," said Oakfoot. The party sat in the same spot as before, with the dryads near the Seed of Eternal Spring.
+
+"Basically," said Mareak after noticing how quiet the other two were. "We were captured trying to make it into their camp, but as you saw, they let us go."
+
+"How strange," said Oakfoot. He waved his branches back and forth in the air in an amusing manner, though Mareak guessed that it was probably just how dryads thought. "I wonder why they didn't just kill you."
+
+Mareak shrugged. "I guess they figured that this wasn't our fight and gave us some leniency."
+
+"This is quite unlike the gnolls," Oakfoot said. "You saw their savagery even when we offered to let them walk away." Oakfoot waved his branches with the wind again. Supressing a laugh, Mareak looked down at his feet and remained silent.
+
+"We must think," Oakfoot concluded. "You may have set things into motion that cannot be stopped now, and the dryads will not be the victims. I think we may march on the gnolls, but wait here while we consider the matter." Oakfoot walked away, and the other dryads followed. They congregated around the Seed and began to speak in low, humming voices.
+
+Mareak quickly rounded up the other two. "Yo, what's wrong with you guys? Can you help here? We have a Seed to cash in on."
+
+"Yeah." Yannhorn narrowed his eyes and focused on the moment again. "Yeah, we do. Did you have a plan?"
+
+"Other than just grab and run? Not really."
+
+"Well, unless you're way better at sneaking than I think, you're not going to get it past that circle of dryads around it," said Yannhorn.
+
+"Like I said: not really." Mareak looked at Darella who sat on a tree stump, staring into the distance. "Darella, you have a plan?"
+
+"I don't even know what I want to have happen," she replied. "I feel like the 'right' thing to do is to let the dryads use the Seed to finish their campaign, but Lyhrfl has really gotten into my head."
+
+"What, you think we should we should help the gnolls?" Mareak looked surprised. "I thought I was supposed to be the evil one here. Look, it seems clear that the easiest path is to let the dryads wipe out the gnolls, and we can just take the Seed when they're done."
+
+"Really?" Yannhorn asked. "I thought it was pretty clear that the gnolls need our help. They're good guys. Okay, well they're actually bad guys, but they treated us great! How can we turn our backs on them? We have to get that Seed out of here soon."
+
+"Fine," said Mareak. "Thank goddness there are three of us. Darella, your call: what do we do?"
+
+Darella slumped forward and put her head in her hands. "I don't know. I don't know what I'm supposed to think right now."
+
+Mareak rolled his eyes, threw his hands up in the air, and turned to walk away. However, he saw Oakfoot walking back towards them. He motioned for Darella and Yannhorn to pay attention.
+
+"We march on the gnolls now," Oakfoot said. "Prepare yourself."
+
+The party stood up to join the dryads congregating.
+
+"Look," Mareak whispered to the others. He pointed at one of Oakfoot's branches. "He's carrying the seed. This is our chance."
+
+---
+
+The dryads marched in lockstep, causing the ground to rumble. The lead dryads made a whirring sound, which sounded vaguely like a warcry. The party followed closely behind without contending the plan.
+
+They soon reached the same spot that they had fought the gnolls earlier, but this time, there were more. Several gnoll scouting parties had gathered around their dead comrades, and hearing the dryads approach, they readied themselves for another battle.
+
+"You're outnumbered!" cried Oakfoot as the dryads approached in force. If any of the gnolls understood, they didn't reveal it as they growled and waved their spears and axes, beckoning the dryads to attack.
+
+"This is an unlucky spot," mumbled Yannhorn. The dryads continued to march forward towards the gnolls, and when they were only paces away from the gnolls, the battle began.
+
+The party joined the battle, knocking down but not killing any of the gnolls. The gnolls were indeed outnumbered, but they fought bravely against their massive, lumbering enemies. The Seed gave the dryads resilence in battle as they wounds seemed less deep, and the youngest of them fought with great strength.
+
+A few minutes into the battle, Darella was fighting side-by-side with Oakfoot. "Oakfoot!" she cried. Oakfoot turned to look at her while swinging away with his branches. "I saw a gnoll running! I think he might warn the others! We have to catch him." Oakfoot nodded and disengaged with the battle. Darella ran off, and Oakfoot followed her away from the battle.
+
+They ran for a few hundred yards before they reached a small clearing. Darella stopped and looked closely at the area around her.
+
+"Which way?" Oakfoot asked. Darella walked slowly and carefully around the clearing.
+
+"I'm not quite sure," she said. "I'm looking for clues." Oakfoot waited, raising and lowering his entire trunk as though to catch his breath. Darella came to the other side of the clearing, then looked back at Oakfoot. "This way, I think. Let's go."
+
+Oakfoot nodded and crossed the clearing. As he stepped through the middle, however, he felt a string snap, and in a second, he was hoisted into the air in a net. He was surprised by the trap and dropped the Seed to the ground.
+
+"What is this treachery?" he cried, trying to twist and turn his rigid body to look down at Darella, who sauntered back towards the middle and picked up the Seed.
+
+"No treachery," she said. "I am only completing my predecessor's work and restoring balance to the forest. I hope you and the gnolls fluorish."
+
+Darella ran back towards the battle that raged on. She found Mareak and Yannhorn fighting together.
+
+"Guys, we should scoot _now_," she said.
+
+"Now?" Yannhorn cried while knocking back a gnoll. "If you didn't notice, we're in a battle. And where have you been?"
+
+"Finishing the quest. Mareak, you wanted my call? My call is that we're done. Now let's run." She took off away from the battle, away from the gnolls and dryads. Mareak and Yannhorn looked at each other, nodded, and followed.
+
+---
+
+"Okay, you have to explain: what made you make up your mind?," asked Mareak as they toasted each others' pints in the warmth of the Burned Skillet.
+
+"I don't know," said Darella. "I thought long and hard about it, and I realized that I was thinking about it all wrong.
+
+"For most people, making choices is all about taking sides. You pick the good or the bad, the law or the chaos, and you change things to suit your outcome. Just being in the battle, however, made me realize that the forest was fine until recently. The druid's side is no side: it's all about balance, and in this case, I guess the 'evil' needed some help, and the wined and dined us to make it happen."
+
+"So your perfect outcome is to let the raids on communities continue and to let the gnolls and dryads duke it out for eternity?" Yannhorn asked. Darella looked deeply into her drink, then nodded. "Fine. I guess we got the Seed. That's balance enough for me."
+
+Darella held her mug out for another toast, and they clinked their drinks again for another quest completed.
 
 

@@ -21,6 +21,13 @@
 		* miss a lot of clues in the world
 	* PCs misremember a lot of names
 		* always get the wrong name for the innkeeper
+	* really unlucky with a particular type of roll
+* characteristic things of play groups
+	* someone's mom sending food
+	* eating a lot
+	* being late
+	* getting interrupted
+	* bringing along a friend
 * game plot
 	* history
 		* been playing this game for years
@@ -60,6 +67,7 @@
 		* should lead into Yenhorn's background
 		* physical equipment doesn't work
 	6. end of the planar quest (january)
+		* there should be some traintracking going on
 	7. beginning of the heist quest (february)
 		* should lead into Mareak's background
 		* rob an important treasure from a shah's palace
@@ -99,10 +107,11 @@
 			* they enjoyed it
 	4. december (drew, carl)
 		* thanksgiving break
-		* Linsday is anxious about the upcoming meet
+		* Linsday is anxious about the upcoming state meet
 		* Wayne does well at state cross country
 		* Drew is anxious for a major tournament on the circuit
-		* Carl is a little worried about how's she was talking over thanksgiving; looking forward to winter break
+		* Carl is a little worried about how's she was talking over thanksgiving
+			* looking forward to winter break
 	5. january (drew, carl)
 		* winter break
 		* Linsday comes back triumphant

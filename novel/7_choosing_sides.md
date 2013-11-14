@@ -320,5 +320,3 @@ Darella ran back towards the battle that raged on. She found Mareak and Yannhorn
 "So your perfect outcome is to let the raids on communities continue and to let the gnolls and dryads duke it out for eternity?" Yannhorn asked. Darella looked deeply into her drink, then nodded. "Fine. I guess we got the Seed. That's balance enough for me."
 
 Darella held her mug out for another toast, and they clinked their drinks again for another quest completed.
-
-

@@ -13,13 +13,13 @@ Carl shrugged in his University of Texas hoodie. "More or less. I think we have 
 
 "Good," Drew replied, nodding slowly. "I have my partner set for this upcoming debate tournament, so we're pretty much unstoppable at this point. Otherwise, my mind is on Mareak counting up his most recent haul from the market."
 
-"Yeah, we'll get to that in a minute," added Wayne. "But before that, I want to know, Linsday, what your plan for Homecoming is."
+"Yeah, we'll get to that in a minute," added Wayne. "But before that, I want to know, Lindsay, what your plan for Homecoming is."
 
-Linsday looked embarassed as the three others looked at her anxiously. "Okay, it's totally not fair for 3 guys to be ambushing me on this one. But if you're interested, Rick did ask me to go."
+Lindsay looked embarassed as the three others looked at her anxiously. "Okay, it's totally not fair for 3 guys to be ambushing me on this one. But if you're interested, Rick did ask me to go."
 
 Wayne hooted a bit, then laughed. "I'm so proud of you," he said with mock affection.
 
-Linsday sent a fake glare back at him. "I'm offended that you would ever believe otherwise. Nerds ask nerds," she explained, which resulted in more laughter. "He did it by making a bouquet of flowers using polar graphs on a bunch of graphing calculators." When she received blank stares, she shook her head. "It's a math thing."
+Lindsay sent a fake glare back at him. "I'm offended that you would ever believe otherwise. Nerds ask nerds," she explained, which resulted in more laughter. "He did it by making a bouquet of flowers using polar graphs on a bunch of graphing calculators." When she received blank stares, she shook her head. "It's a math thing."
 
 "So did you say yes?" asked Drew. 
 
@@ -31,15 +31,15 @@ Linsday sent a fake glare back at him. "I'm offended that you would ever believe
 
 "So just go to the other one!" exclaimed Wayne. "You have already skipped 50% of the high school homecomings in your life. You better get on it soon, or it'll be like you never even went to high school."
 
-"First, there's obviously so much more to high school than that," Linsday retorted. "Second, the next regionals is in December. I have to take the PSAT in-between then, and who knows: I could fail to qualify in that one, so I should go to both of them."
+"First, there's obviously so much more to high school than that," Lindsay retorted. "Second, the next regionals is in December. I have to take the PSAT in-between then, and who knows: I could fail to qualify in that one, so I should go to both of them."
 
 "You're not going to fail to make it," said Carl. "I remember Mrs. Brown said that you got the highest score by far last year. You're going to qualify. Lighten up."
 
-Linsday had a look of disbelief for a moment. "Wayne, you have to understand. What if you had 2 chances to get through districts for cross country. Would you just skip one of them for a dance?"
+Lindsay had a look of disbelief for a moment. "Wayne, you have to understand. What if you had 2 chances to get through districts for cross country. Would you just skip one of them for a dance?"
 
-"Uh, yeah, I would. If it was _homecoming_ and somebody wanted to go with me. Linsday, there's a lot more to high school than just math competitions."
+"Uh, yeah, I would. If it was _homecoming_ and somebody wanted to go with me. Lindsay, there's a lot more to high school than just math competitions."
 
-"That's easy for you to say: you have your college scholarships for cross country." Her delivery came off as an accusation. Carl and Drew looked wide-eyed as their eyes jumped back and forth between the two to see how they would react. Linsday blinked and relaxed. "Sorry, that came off harsh. Can we just play?"
+"That's easy for you to say: you have your college scholarships for cross country." Her delivery came off as an accusation. Carl and Drew looked wide-eyed as their eyes jumped back and forth between the two to see how they would react. Lindsay blinked and relaxed. "Sorry, that came off harsh. Can we just play?"
 
 "No problem, no offense taken," said Wayne as he waved his hand dismissively. "I'm just trying to give you some perspective as someone with more high school behind than ahead. But yeah, let's play." Wayne reached out and grabbed his character sheet from the table. "We just rescued the priests and saved that pool thing, right?"
 
@@ -57,7 +57,7 @@ Linsday had a look of disbelief for a moment. "Wayne, you have to understand. Wh
 
 "Yes, the _Hungry_ Rabbit," corrected Carl. "Run by..."
 
-"Brickbeard," added Linsday.
+"Brickbeard," added Lindsay.
 
 "No, Brickboard." Carl rolled his eyes. " I swear, I don't even know why I bother with all of this lore and coming up with names. It's not like you guys know who I'm talking about anyways.
 

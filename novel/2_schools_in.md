@@ -9,9 +9,9 @@
 
 Drew reached the top of the stairs, which opened into a game room, where 3 others were already sitting at the couches around the cofee table. They each had a few pieces of paper around them, but most of the clutter was on the coffee table: big hardback books, dice, pencils, miniatures, and some sort of maps were layered deep. And amongst that were glasses of water and cans of soda, which were ready to spill if someone shoved something in the wrong direction.
 
-"Hi Linsday, Wayne," Drew said. Linsday looked up first from her current conversation and waved at Drew. 
+"Hi Lindsay, Wayne," Drew said. Lindsay looked up first from her current conversation and waved at Drew. 
 
-"Hi Drew. Long time no see," she responded with a smile. Although they hadn't had many classes together before, Drew and Linsday happened to be in US History together and had talked earlier that day.
+"Hi Drew. Long time no see," she responded with a smile. Although they hadn't had many classes together before, Drew and Lindsay happened to be in US History together and had talked earlier that day.
 
 "Hey Drew," said the last person on the couch. Wayne was pretty lanky, but it certainly wasn't for lack of effort. He had on a worn University of Michigan t-shirt and was sprawled over the couch with his feet up on the coffee table. "How's the toughest year of your life treating you?"
 
@@ -21,17 +21,17 @@ Drew reached the top of the stairs, which opened into a game room, where 3 other
 
 "I hear you." Carl leaned back into his big comfy chair with his laptop in front of him and talking while typing. "At least you have interesting things to write about with cross country and all. I'll bet the scholarships will help, too. I feel like I need to make up a campaign for my own life just to write a decent story."
 
-"But don't you already know where you want to go, Carl? Longhorn for life, right?" Linsday asked. Carl looked up quickly, nodded, then looked down again. "How is Marie doing, anyways?"
+"But don't you already know where you want to go, Carl? Longhorn for life, right?" Lindsay asked. Carl looked up quickly, nodded, then looked down again. "How is Marie doing, anyways?"
 
 "She's good. She loves it at A&M."
 
 "How often have you talked to her since she left?" Drew hadn't known Marie particularly well, but he knew that she and Carl were quite serious.
 
-"Uh, almost every night. You can say hi to her if you want later on. We're probably going to video chat after we finish up with tonight's RPG session. Linsday, what about you? How is junior year treating you?"
+"Uh, almost every night. You can say hi to her if you want later on. We're probably going to video chat after we finish up with tonight's RPG session. Lindsay, what about you? How is junior year treating you?"
 
 "It's good. Classes seem good, and my schedule works out pretty well; I didn't get too many of the tough teachers."
 
-"What about that math thing you do? Are you excited to start up with that again?" Wayne wasn't particularly familiar with the apparently extensive set of academic competitions out there, but Linsday had been quite successful for just a sophomore the previous year and always seemed to have another medal whenever they played.
+"What about that math thing you do? Are you excited to start up with that again?" Wayne wasn't particularly familiar with the apparently extensive set of academic competitions out there, but Lindsay had been quite successful for just a sophomore the previous year and always seemed to have another medal whenever they played.
 
 "Oh. That. Yeah, that's less good." She went quiet. Wayne sat up. Carl stopped typing and looked up from his computer. Drew kept shuffling the papers looking for his character sheet. A few seconds passed, and she started again. "Well, our first regional meet is the first week of November. On that Saturday." The rest of them started blankly at her and tried to think why that was significant.
 
@@ -39,13 +39,13 @@ Drew reached the top of the stairs, which opened into a game room, where 3 other
 
 "Okay, first, no one's asked me to go yet. School did just start," she argued in her defense. "And I don't know what the event schedule looks like. We'll have to see."
 
-"That's tough luck," added Wayne. "Well, you're going to have to do it some year. I promise it'll be a ton of fun. I'm sure one of your nerdy friends will ask you so you can all go in a group." Linsday didn't react much to this last comment. Trying to cover up the awkward situation, Wayne turned to Carl. "Should we start?"
+"That's tough luck," added Wayne. "Well, you're going to have to do it some year. I promise it'll be a ton of fun. I'm sure one of your nerdy friends will ask you so you can all go in a group." Lindsay didn't react much to this last comment. Trying to cover up the awkward situation, Wayne turned to Carl. "Should we start?"
 
 "Yes. One second. I just need to finish writing down my last thoughts for this adventure." Carl typed for another minute before looking up. "Okay, we're good to go. Everyone have their character sheets? Everyone ready for this month's roleplaying session?"
 
 "Yannhorn is good to go," said Drew, finally finding and pulling out a piece of paper from the pile.
 
-"Uh, was Darella hurt in the last adventure? I can't read my handwriting here," Linsday commented.
+"Uh, was Darella hurt in the last adventure? I can't read my handwriting here," Lindsay commented.
 
 "Yeah, I have you down for take 5 points of damage from the vines."
 
@@ -59,7 +59,7 @@ Wayne nodded.
 
 "Hoarders for the win!" Wayne yelled out.
 
-"I imagine you all probably rested up a bit and drank some of Feenious's potions to recover some health. Everyone roll an eight-sided die to figure out how much life you get back." Drew, Linsday, and Wayne all reached to the table, tossed the appropriate die, then began erasing and re-writing numbers on the paper. "Do you remember where you are in the plot?"
+"I imagine you all probably rested up a bit and drank some of Feenious's potions to recover some health. Everyone roll an eight-sided die to figure out how much life you get back." Drew, Lindsay, and Wayne all reached to the table, tossed the appropriate die, then began erasing and re-writing numbers on the paper. "Do you remember where you are in the plot?"
 
 "No."
 

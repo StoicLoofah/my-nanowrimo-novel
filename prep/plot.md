@@ -66,6 +66,11 @@
 	5. beginning of the planar quest (december)
 		* should lead into Yenhorn's background
 		* physical equipment doesn't work
+		* get led through the sideways tower
+		* land naked in the new plane, in a battle
+		* revise to focus more on Drew in the last section
+		* tower should be destroyed when they get back
+		* the security system will still be active and will deliver the item
 	6. end of the planar quest (january)
 		* there should be some traintracking going on
 	7. beginning of the heist quest (february)

@@ -85,4 +85,46 @@ The chanting stopped, and they heard Feenious say, "When you find the item, you 
 
 ---
 
+"What do we have here?" said the green creature. It stood over the pile of 3 adventurers lying on the ground. They lay for a second before reorienting to the plane and the immediately scrambled off of each other and to their feet.
 
+"We're representatives of the Guild Dedicated to the Integrity of the Material Plane," Mareak said, "and I am Grant Master Mareak. These are my colleagues, Yannhorn and Darella."
+
+"Pleased to meet you," it said in a reedy voice from a poorly defined mouth. It extended a hand to each of the them, which they all accepted and shook hands. The hands felt gelatinous and squished easily under their grips. "My name is Lamaramakama. What brings you to my plane?" 
+
+"Well, as you might have guessed, we are interested in preserving the material plane," explain Mareak. As he spoke, the others nodded in agreement. "We have been made aware of an item in your possession that, when taken from the material plane, may lead to a significant disruption in the fabric of the plane."
+
+"There's about a 63% chance of complete collapse within the next year!" added Darella.
+
+"Indeed," Mareak said with the greatest seriousness. "Now, we would be willing to overlook this matter if you could simply return it to us, and we will be on our way."
+
+Lamaramakama did not move for several seconds before responding. "I'm afraid I will not comply."
+
+"And why is that?"
+
+"Well, I believe you are not part of this Guild because your nose has steadily been growing since you began talking." Mareak crossed his eyes to look down, and instead of his usual, sharp, small nose, he saw it extend for several inches from his face.
+
+"I can explain," Mareak said. His nose grew again.
+
+Yannhorn then jumped in. "Look, buddy, just hand over whatever you took from the material plane, and no one gets hurt." He reached to pull out his sword, but when he closed his hand upon the grip, he found nothing. He looked down at his sheath and saw that his sword was gone.
+
+"Threats? In my plane? Now that is a poor thing for a visitor to do." Lamaramakama then began to walk away. The fairies around him formed a wall and transformed into hideous, giant mosquitos. "Enjoy your stay," Lamaramakama called out, and he disappeared into the landscape.
+
+"Great job, both of you," Darella said. She reached for her pouch of reagents, but also found that way gone. "I think we may have lost some of our material possessions when we transported over," she said.
+
+"I guess we'll do it the old-fashioned way," Mareak said. He raised his fist into boxing positions. "This is just like my days on the streets."
+
+One of the mosquitos dived at Mareak with its proboscis. Mareak weaved to the side to avoid it and punched with his close hand into the oncoming face of the mosquito. His hand passed through its body like water, and the mosquito turned back into a fairy and lay immobile on the ground.
+
+Darella dropped back several steps and looked around. She knelt and touched the ground, which felt oddly bumpy. She grabbed a handful of it, and when she looked at her hand, she saw a pile of dirt. Smiling, she waved her other hand over it and watched as the dirt solidified and slid to coat her body. With her improvised armor, she watched as a giant mosquito came in, and it's proboscis hit her in the chest and crumpled. With both hands overheard, she slammed down upon the mosquito.
+
+Seeing two of their friends go down, the rest of the mosquitos turned back into fairies and fluttered off.
+
+"Wait, I have to deal with one of you, too!," called out Yannhorn. He ran several steps forward after them, then gave up. "Well, there goes my moment of glory."
+
+As he came back to the others, one of the fairies began to slowly come to.
+
+"Woah, where am I?," the fairy asked in a small but sweet, feminine voice.
+
+"You're in good company, sister," Mareak said. "We can be friends if you don't attack again, okay?" He picked the fairy up off of the ground.
+
+"Okay," she responded. "So what do friends do together?"

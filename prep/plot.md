@@ -69,15 +69,22 @@
 		* get led through the sideways tower
 		* land naked in the new plane, in a battle
 		* revise to focus more on Drew in the last section
-		* tower should be destroyed when they get back
-		* the security system will still be active and will deliver the item
 	6. end of the planar quest (january)
 		* there should be some traintracking going on
+			* trying to imagine all sorts of things that suddenly don't work any more
+		* Yannhorn is the one who can't seem to create things out of nothing
+			* it's just a matter of belief in confidence in himself
+			* needs a moment of vulnerability to Lamaramakama
+		* it's a big test from Lamaramakama
+			* he just wants to see that humility and understanding from the them
+			* wants to see that the people of the material plane are worthy
 	7. beginning of the heist quest (february)
 		* should lead into Mareak's background
 		* rob an important treasure from a shah's palace
 	8. end of the shah's quest (march)
 	9. Personal challenges (april)
+		* tower should be destroyed when they get back
+		* the security system will still be active and will deliver the item
 		* 1:1 with each player
 		* make them confront the choices from their section
 		* a challenge to the DM as well

@@ -9,7 +9,7 @@ Dungeon Investigators Inc. stood outside of the sideways tower. Yannhorn strode 
 
 "Not the worst idea," said Mareak. "I could use some bonus cash on the side. Unfortunately, I didn't factor in the travel time into our anticipated hourly rate for this trip. I may demand more from Feenious."
 
-"Yes! Feenious is here!," they suddenly heard. They looked around for the source, and Mareak was the first one to find it. He pointed toward the tip of the tower off to their right, where they saw Feenious waving out of the window, also sideways.
+"Yes! Feenious is here!", they suddenly heard. They looked around for the source, and Mareak was the first one to find it. He pointed toward the tip of the tower off to their right, where they saw Feenious waving out of the window, also sideways.
 
 "I'll be right down!" Feenious cried at them. He retreated back from the window. Despite the distance, the party could hear gurgling water, metallic crashes, breaking glass, chicken clucking, falling books, and snapping wood coming down the length of the tower. The sound continued as it hit the right angle in the tower and came down the vertical floors. Just as the sound reached the doorway in front of them, the door flew open, and they saw Feenious standing there, perfectly composed.
 
@@ -107,7 +107,7 @@ Lamaramakama did not move for several seconds before responding. "I'm afraid I w
 
 Yannhorn then jumped in. "Look, buddy, just hand over whatever you took from the material plane, and no one gets hurt." He reached to pull out his sword, but when he closed his hand upon the grip, he found nothing. He looked down at his sheath and saw that his sword was gone.
 
-"Threats? In my plane? Now that is a poor thing for a visitor to do." Lamaramakama then began to walk away. The fairies around him formed a wall and transformed into hideous, giant mosquitos. "Enjoy your stay," Lamaramakama called out, and he disappeared into the landscape.
+"Threats? In my plane? Now that is a poor thing for a visitor to do. You have proven nothing to me yet" Lamaramakama then began to walk away. The fairies around him formed a wall and transformed into hideous, giant mosquitos. "Enjoy your stay," Lamaramakama called out, and he disappeared into the landscape.
 
 "Great job, both of you," Darella said. She reached for her pouch of reagents, but also found that way gone. "I think we may have lost some of our material possessions when we transported over," she said.
 
@@ -119,12 +119,110 @@ Darella dropped back several steps and looked around. She knelt and touched the 
 
 Seeing two of their friends go down, the rest of the mosquitos turned back into fairies and fluttered off.
 
-"Wait, I have to deal with one of you, too!," called out Yannhorn. He ran several steps forward after them, then gave up. "Well, there goes my moment of glory."
+"Wait, I have to deal with one of you, too!", called out Yannhorn. He ran several steps forward after them, then gave up. "Well, there goes my moment of glory."
 
 As he came back to the others, one of the fairies began to slowly come to.
 
-"Woah, where am I?," the fairy asked in a small but sweet, feminine voice.
+"Woah, where am I?", the fairy asked in a small but sweet, feminine voice.
 
 "You're in good company, sister," Mareak said. "We can be friends if you don't attack again, okay?" He picked the fairy up off of the ground.
 
 "Okay," she responded. "So what do friends do together?"
+
+"Well, they don't turn into blood-sucking insects and attack," said Yannhorn.
+
+"But they do help to protect each other and guide them through tough times," added Darella. "It's really important that we find whatever it is that Lamaramakama took from our home. Do you happen to know what that might be?"
+
+"No, I have no idea," the fairy replied. "But I can guide to you his castle if you want. Then you can ask him yourself." With that, the fairy lifted herself out of Mareak's hands and began to fly off.
+
+"Do we follow her?" asked Darella.
+
+"I guess so," replied Mareak.
+
+"It's a trap," said Yannhorn.
+
+"Oh, it's definitely a trap," said Mareak.
+
+"Sounds like we're in agreement," said Darella, and they all started off together after the fairy.
+
+---
+
+"So you heard our names earlier," said Mareak. They walked along with the fairy, who danced and flew up and down through the air. "What's your name?"
+
+"My name," she said, slightly cross. "Yes my name... you know, I don't think I have a name, or at least can't remember it."
+
+"Well, whether it's your name or now, what should we call you?" asked an impatient Yannhorn. It had been almost an hour of walking, and in that time, they had seen nothing: no trees, no buildings, no landmarks, no other beings. The pitch black sky also revealed nothing.
+
+"If you need a name, you can call me Hannah," the fairy replied.
+
+"That's creative," said Mareak, somewhat disappointed. "So Hannah, I must admit, we have been following you for a long time, and though we trust you, I kind of feel like your ambling around hasn't really led us to anything."
+
+"What were you expecting?" she asked. She stopped and turned to look at the party.
+
+"I'm surprised that there doesn't appear to be any vegetation or any sort," said Darella. "I would expect maybe some grass or a tree. What do you eat, anyways?"
+
+"You mean like that fruit tree?" The fairy pointed behind the party, and when they looked, they saw a single, small, blue-green tree standing there.
+
+"How did we miss that?" Yannhorn asked. They all started walking towards the tree, and as they got closer, the tree appeared bigger and bigger. When they arrived at the foot of the tree, it was 20 stories tall. Amidst the blue-green leaves were a wide variety of fruits: apples, pears, orange, and bananas.
+
+"For such an exotic tree, I was kind of expecting something stranger to be growing here," said Yannhorn. He picked an apple off of the tree, rubbed it on his sleeve, then took a bite. "Tastes like an apple," he said.
+
+The others also grabbed fruits off of the tree and began nibbling. Hannah tried to take a pear, but she couldn't quite get her arms around it to pull it off the branch. Mareak reached over to give it a yank, and it fell to the ground. Hannah gleefully dove down onto the pear and began to eat. The rest of the party relaxed back against the tree and ate their fruit.
+
+"This plane maybe isn't so bad," said Mareak while eating his third orange. "I feel like I have to apologize to you, Hannah. I thought you were leading us into a trap, but this is quite pleasant."
+
+When Mareak said the word "trap", Hannah's eyes went wide, and she flew in close to Mareak. Mareak looked around alarmingly, then found the source of concern.
+
+They heard a series of hoots and screams from the tree, and a bunch of monkeys rappelled down. Before any of the party could react, the monkeys swarmed each of them, pinning them down and slapping them.
+
+Yannhorn tried to shove them away, but his limbs weren't long enough to get enough leverage to push any of the monkeys away. He tried to roll back and forth, but the monkeys held him firm.
+
+"Run," yelled Mareak to Hannah. Hannah tried to fly away, but a monkey grabbed her out of the sky. The monkeys grabbed at Mareak, but he managed to get the tree trunk behind him. He brought his knees in close, and kicked out violently, throwing off a few of the monkeys. He quickly got to his feet and spun around to flnig the rest off of him.
+
+Darella was surprised the most and took several bites from the monkeys before realizing they were under attack. When she realized the nature of her attackers, she uttered a quick spell.
+
+"Stop!", she yelled, and the monkeys around her all froze. "Back!" The monkeys, completely under her spell, all stepped backwards several steps. Darella stood up and ran over to help the others.
+
+Mareak quickly scanned the scene and saw a monkey clutching something in its hands. He ran over to the monkey and gave it a kick in the back, upon which it let loose Hannah and fell face-first. Hannah flew up and out of reach of any monkeys. Mareak then turned back to see Yannhorn continuing to struggle. With the help of both Mareak and Darella, Yannhorn managed to push away all of the monkeys.
+
+"What was that," Yannhorn said rhetorically while breathing heavily. He looked up to deal with the next batch of monkeys, they had all disappeared. He took several more breaths and regarded his companions again. "Well, some help I was."
+
+"Don't worry about it," said Mareak. "We're still a team. Right, Hannah?"
+
+"Right!", she replied. "Thanks for the help there, sort of."
+
+Mareak wrinkled his brow at this comment. "You're welcome? What do you mean 'sort of'?"
+
+"Well, it's kind of your fault," she said sassily. Yannhorn and Darella looked puzzled as well.
+
+"How did I cause monkeys to come out of the tree?"
+
+"Because you thought it first," she said. She looked expectingly at them as though it was all obvious, but they just stared back at her dumbfounded. "Do you not know how this world works?" The others shook their heads. 
+
+"Well," she began, "it's quite simple. In this plane, the world is largely determined by your thoughts." She rattled off this sentence as though she were reading a book. "If you believe something with enough conviction, it will probably become true. There are, of course, some innate properties to the plane, and things may not quite work when different thoughts conflict, but that's basically the idea."
+
+"So I made the tree appear? And the ground turned to dirt when I needed it?" asked Darella. Hannah smiled and nodded happily.
+
+"And I made those monkeys appear?" asked Mareak. Hannah nodded at him, too. "And we walked for that entire time without seeing anything, maybe because we didn't have any expectation of what we were going to see?" Hannah just smiled at this one. Mareak looked in wonder at the others, then laughed. Without looking, he reached up into the tree with one hand and pulled out a watermelon. Hannah and Darella looked at the massive fruit in his hand and laughed as well.
+
+"Well, wait a minute!" said Yannhorn, shaking his hand and waving his hands in the air. "That doesn't make any sense. Let's look at my track record. I reached for my sword earlier, thinking it would be there, and it was gone. I thought that the fruits would be weird, but they weren't. And I definitely believe that I can beat a couple monkeys. What about me?"
+
+Hannah looked at him curiously, then quietly asked, "Did you really believe those things?"
+
+Yannhorn gave her a look of complete disbelief. "Yeah, sure, why not? Yannhorn believes in Yannhorn." He looked at Mareak and Darella for help, but neither of them had anything to say. "Aww, screw it. Look, I know me, and I don't need some strange plane to validate my own beliefs."
+
+"I'm not really sure what to say," said Mareak. "Maybe it doesn't quite work for you, but we're still in good shape here. Besides, I think we'll find Lamaramakama's castle soon enough."
+
+"Me, too," added Darella, and she started walking without waiting for Hannah to lead them. Not 10 minutes later, they saw a castle arise in the distance. Smiling, they rushed forward towards their destination.
+
+The castle had roughly the layout they expected: a moat filled with water surrounded it, and ramparts ran along the 6 story high walls. There was a tower at each of the 4 corners, and they could see a keep inside the walls. The gate had a large drawbridge, and several figures stood as guards at the entrance. Also somewhat expected: it was also a shimmering, everchanging pink and purple color.
+
+"So that's where Lamaramakama lives, right?" asked Darella.
+
+"I think so," said Hannah. "It appears to be better guarded and scarier than it usually is, though."
+
+"My bad," said Mareak sheepishly.
+
+"So what, we siege and storm the castle?" asked Yannhorn. The others looked at him worried. "Hey, I can't make things worse for us, as Hannah has so aptly pointed out. I'm just trying to help."
+
+"That's okay," said Darella. "Look, I think we need some time to figure out how this plane works, how we can plan, and how our plans will affect how this plane works. Let's stop for now and we can get whatever it we're looking for soon."

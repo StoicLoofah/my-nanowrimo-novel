@@ -15,7 +15,8 @@
 	* Aralynn is the great druid who is gone
 	* searching for the Seed of Eternal Spring
 	* Lyhrfl is the lead 
-	
+* other plane
+	* Lamaramakama is the ruler of this plane
 * Mrs. Brown is the head of the math club
 	* Rick asked Linsday to go to HC
 * Drew's debate partner is Christie

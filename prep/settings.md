@@ -17,6 +17,7 @@
 	* Lyhrfl is the lead 
 * other plane
 	* Lamaramakama is the ruler of this plane
+	* Hannah is the fairy
 * Mrs. Brown is the head of the math club
 	* Rick asked Linsday to go to HC
 * Drew's debate partner is Christie

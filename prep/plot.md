@@ -78,6 +78,10 @@
 		* it's a big test from Lamaramakama
 			* he just wants to see that humility and understanding from the them
 			* wants to see that the people of the material plane are worthy
+		* encounter some sort of labrynith
+		* would be really helpful to have Yannhorn around
+		* needs to pull them out of a difficult but not impossible situation
+			* not imprisoned	
 	7. beginning of the heist quest (february)
 		* should lead into Mareak's background
 		* rob an important treasure from a shah's palace

@@ -15,9 +15,9 @@
 
 "I heard he choked really badly," Lindsay said. She flopped down on the couch. "He was apparently crushing people in the early rounds, and he met a pretty well-known team and just completely fell apart."
 
-"That's too bad," Carl said. "I was actualy going to put a really big focus on him for this adventure. Maybe I got a little too psycho with him by focusing on his insecurity with this adventure."
+"That's too bad," Carl said. "I was actualy going to put a really big focus on him for this adventure. I guess I'll need to retool some of this material for you guys. Maybe I got a little too psycho with him by focusing on his insecurity with this adventure."
 
-Wayne idly spun his phone around in his hand. "Maybe it was rough," he said. The room was quiet again. "You don't look like you're doing so hot yourself."
+Wayne idly spun his phone around in his hand. "It might have been good for him, if tough. I don't think you scared him off, per se," he said. The room was quiet again. "You don't look like you're doing so hot yourself."
 
 Carl shook his head. "Things are not going well with Marie. I was pretty excited for her to come back for winter break, but we ended up actually seeing each other very much."
 

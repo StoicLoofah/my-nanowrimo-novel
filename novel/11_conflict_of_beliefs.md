@@ -192,3 +192,111 @@ Mareak looked at the tavern around him: instead of the jolly evening from before
 And landed on the cold, hard, damp stones of a prison cell.
 
 ---
+
+"Hey, is that you guys?" a voice called. 
+
+Mareak sat up and rubbed his jaw. The prison cell was barely lit by a small window several feet off the ground, and he could see a rolling pink-purple landscape outside. It cast a strange light about the prison cell, and he could barely make out various people chained against the wall.
+
+Darella stood next to him and helped Mareak to his feet. "Who said that?", she called out. 
+
+"Guys, it's me," the voice said again. "It's Yannhorn."
+
+They rushed over to the corner where they heard the voice, and up close, they could see the unmistakeable stature and features of the halfling in shackles against the wall.
+
+"Unbelievable!", Darella said. "How did you end up in here? Wait a second: how do we know it's you?"
+
+Yannhorn thought for a second. "Uh, well, I am right here. It kind of has to be me, right?"
+
+Mareak pondered this point for a moment, then agreed. "Good point. Well, I'm glad to see you here. Wait just a second: I'll get my tools out and get you free."
+
+"Don't even bother trying," Yannhorn replied. He shook the chain on his left hand. "I looked it over, and I don't see a lock anywhere. They must have welded me in or something."
+
+"Hmm," Mareak said. He ran his fingers over the length of the chain. "Looks like you're right. I guess we'll just have to blast our way out of this dream."
+
+"Hah!", a voice called from the darkness. "Like you'll ever figure that one out." The voice was filled with the cynicism of an old man.
+
+"We got out of a tavern," Mareak retorted.
+
+"What, you got out of a tavern?" Yannhorn asked. "Why does my imagination look so terrible?"
+
+Darella gave him a pat on the head. "Bad luck, I guess? As a summary, we were just in some bizarro tavern where everything was totally normal except no one was sentient other than the bartender. Mareak had the great idea to tear the place apart to break the reality completely. Question, though: how are you sober right now?"
+
+Mareak shook his head and shrugged. "No idea. But I think that was pretty important: I feel like my thoughts were far less inhibited after downing those drinks."
+
+"That's nothing," called out the voice again. "I beat the tavern in ten minutes. This place? I have been here from 10 years. And I have never seen the jailer. Maybe the prison is physically isn't real, but it sure is mentally real."
+
+The party looked at each other with concern.
+
+"Well that's grim," Mareak said. "Any thoughts on how we're going to get out?" The party was silent. Mareak twirled a lockpick between his fingers while Darella looked down into the puddle beneath her.
+
+"I guess the difference this time," Yannhorn added, "is that you have me now. You guys already had your test back at the tavern. I think this place is mine to figure out."
+
+"Thanks for stepping up," Mareak said. "Unfortunately, you also happen to be the one chained to the wall. This seems pretty difficult."
+
+"No, I think that's part of the point," Yannhorn said. "These," he said while shaking the chains, "are physical. My problem so far with this plane has been all mental: I don't have the will or confidence or whatever to assert reality how I need it. So let's work through this."
+
+"Okay, what do you want to work through?" asked Darella. She sat on the ground in front of Yannhorn. He shrugged.
+
+"How about your recent performance problems?" called out the voice from the darkness.
+
+"I hope we're still talking about the adventure," Yannhorn said with a straight face. The other two snickered, and Yannhorn waited for them to quiet down. "Okay, let's start with the performance problems. I couldn't conjure up anything when we wandered around this plane. That was pretty wimpy."
+
+"Meh," Mareak replied and waved off the concern. "I'm not too worried. It happens sometimes. We have it covered."
+
+"See, I guess that's the problem," Yannhorn quickly said, then retreated. He sat silently.
+
+"What's the problem?", Darella asked after a few seconds.
+
+Yannhorn didn't respond immediately. He looked up at Darella, then back down. "I feel like I'm not contributing to the team like you guys are. I can't conjure plants to fix everything. I can't dance with a gnoll to win respect. What I can do is slip in the mud and fail to fight off a mosquito, and then make a snarky comment about it."
+
+"Woah, way to cut yourself short," said Mareak. "I'm pretty sure you whirlwinded to take out the kobold commandos. You also led our charge on the gnoll scouts. That's pretty impressive."
+
+"Geez, that stuff was just luck," Yannhorn said with disdain. "Thank goodness I managed to not get smashed too badly in those battles."
+
+"And that's where you're discounting yourself," said Darella. She leaned in to emphasize and empathize. "There is naturally variance in this world, and it's unfair to yourself and your abilities if you credit the good to luck and the bad to a lack of talent. It's all a roll of the dice anyways."
+
+"Whatever," Yannhorn replied, unconvinced. "Look, I really appreciate what you guys are trying to do here, but as I said, I need to figure out this problem."
+
+"That's what we're doing right now," Mareak added. He was crouching on one knee and rubbed his jaw again. "Maybe you don't have the most glamorous job as the tank: you can't cast spells, and you don't have super-cool sneak attack moves like me." As he said this, Mareak jabbed out with an imaginary dagger. "But without you around, I get knocked down twice. Embrace your role."
+
+Yannhorn nodded and said nothing. The party sat in silence for a few moments, digesting the moment of calm and the thoughts they had shared.
+
+"Thanks guys," Yannhorn said. "Again, I really appreciate hearing thesethings from you guys, but I'm not going to change overnight. I guess the best I can do is prove that I'm up to the role by getting us out of here, and I think I can."
+
+Yannhorn stood up and yanked on the chains on his wrists a few times. He pressed his feet into the ground and lunged forward. The chains held strong, but continued to push. 
+
+"I'm going to do this," he said while gritting his teeth. "I'm a tank,"" he continued, "albeit a small one. I can do it. And I mean it this time."
+
+He made a second effort, but the chain continued to hold. Mareak was about to step forward, but Darella held him back.
+
+On Yannhorn's third effort, they heard a slight cracking sound. He looked behind himself at the stone wall, and long cracks developed in the wall. Yannhorn kept pulling, and the stones where his chain was nailed into the wall began to move. Pulling and pulling, he exerted himself entirely, and on his last pull, the entire wall suddenly gave. The stones fell to the ground, breaking Yannhorn's chains. The others rushed up to him for high fives, but the moment was overly quickly when they looked in the gaping hole in the wall to see a marble white room, with Lamaramakama sitting on a throne in the middle of it.
+
+Their joy turned serious as the party stepped over the rubble and into the marble room. Tall Roman-style columns held up the lofty ceiling, but other than those and the throne, the room was empty.
+
+"I see you have made it," said Lamaramakama without any hint of surprise.
+
+"We made it," Mareak said triumphantly. He held out an open palm. "Hand over whatever it is that you took."
+
+Lamaramakama then began to laugh. "But I don't have it!" He held out his hands open as well to show he had nothing to hide.
+
+"That's not how this works!" Darella said in outrage. "You told us you had it: what sort of game is this?"
+
+"I said no such thing." Lamaramakama re-adjusted on the throne and wiggled his tiny toes. "I said that you could have it if you could find it, and I said that I was in my keep. _You_ assumed that finding me was finding your treasure."
+
+Mareak began to reach for his dagger, but Yannhorn put his own hand over Mareak's.
+
+"Wait," Yannhorn said. "I think I have this one."
+
+"How?", Mareak said. He didn't move his hand from his dagger. "We got riddles before, and they were all tricks. There's a really easy way to get this done."
+
+Yannhorn closed his eyes for a moment and nodded. "I know. It is really easy. It's just over there." He pointed out with his other hand, and when everyone looked in that direction, they saw a crystal sphere floating on a pedestal.
+
+Lamaramakama hopped out of his throne and bowed to Yannhorn. "Congratulations, sir. Just as I hoped that this treasure would bring me understanding of the material plane, I hope that your experience here has brought you deeper understanding. The Sphere of Eternal Will is yours for the taking." Lamaramakama then hopped back up into his seat and sat patiently.
+
+"That's it?" Darella said. Lamaramakama nodded, and the party walked over to the pedestal. "You know, I was wishing we would find it all along," she said to Yannhorn. "What did you do differently?"
+
+Yannhorn lifted the sphere with both hands off of the pedestal and into his keeping. "Sorry to disappoint, but it was as simple as willing it be here. I think we all thought we would catch Lamaramakama, and he would give it to us. Maybe if we had just imagined finding it on its own, we would have gotten it much sooner."
+
+The others nodded in agreement and looked deep into the sphere. Within, the sphere had seemingly millions of facets, and the patterns went down infinitely. Simply peering in, all of them were inspired greatly.
+
+Yannhorn interrupted the moment for them. "Okay, guys. We did it. Let's go home. I think there's a portal back right behind us."

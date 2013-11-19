@@ -99,4 +99,96 @@ Darella backed away from the door. Mareak kneeled up close to the door and looke
 
 "I think it's electrically charged," he said. "Our best bet is to ground it to neutralize the trap." From his pack, he found a length of rope-like wire. He took one end and buried it partway under the ground into the pink-purple. With the other, he formed a loop, which he began to swing around like a lasso. In one smooth motion, he tossed and released the loop towards the door. When the loop caught on the handle, they heard a "zap" in the air, and the wire smoked slightly.
 
-"Good work," Darella said as Mareak began to reel the line in. He formed a coil again, threw it back into his pack, then approached the door as normal and opened the door.
+"Good work," Darella said as Mareak began to reel the line in. He formed a coil again, threw it back into his pack, then approached the door. He grabbed the handle without hesitation and opened the door. 
+
+Behind it was complete darkness. Despite the ambient light, there was a hard threshold behind which everything was black. Mareak moved his hand forward through the darkness, and as it crossed the door frame, his hand disappeared. He moved it back and forth, and though he couldn't feel anything, something was happening.
+
+"Have you ever seen anything like this?" Darella asked him. She walked up to the opening and ran her hand forward and backwards as well.
+
+"Beats me," Mareak replied. "It's moments like this when I wish I had chosen to become a wizard instead of a rogue. Do you hear that, though?" Without moving through, he moved his ear closer to the black threshold.
+
+Darella sidled up as well. "Yeah, I think so. It sounds like tavern music. Should we go in?"
+
+"Could be dangerous," Mareak said. "You first." Darella turned to look at Mareak, but he was already pushing her forward, and he followed immediately after.
+
+---
+
+Inside, Darella and Mareak were standing in a loud tavern. Behind them, the door shut, and when Darella went for the handle, the door didn't move.
+
+"This is most surprising," Mareak said. He walked forward slowly and scoped out the room. There were roughly 50 people at the tables and bar, and though they all appeared to lively and enjoying their company, he couldn't distinctly make out a single converation. "This tavern is some sort of creation of our imagination. The people in here feel roughly correct, but individually, they're speaking gibberish."
+
+Darella walked up close to a dwarf and human laughing over a drink, and though she moved close enough to eat the chicken leg on the table, they didn't react and continued their conversation. "Look at this," she said, pointing to the dwarf. "He's drinking, but the amount of liquid in his cup isn't changing. I don't know if there's an intelligent being in this room other than myself."
+
+Mareak walked up to the stage where several performers were playing and surveyed the entire room. Darella walked through the tables several more times before joining Mareak. "Well, this is supposed to be a test, right?", Mareak asked. "Do you see anything unusual around here? Anything that may be our next step?"
+
+"No, and believe me, I'm trying to imagine something more interesting. There is the door back there, presumably to the kitchen," she pointed out. "Let's try that."
+
+They approached the kitchen door, but before opening it, they heard a voice cry out above the rest of the din. They looked back to see the bartender leaning over the bar and looking at them.
+
+"Hey! You!" he said. "No going back there! That's off limits!" Darella and Mareak looked at the portly bartender who stared intensely at them behind a thick, red beard.
+
+"I think we might have found our exception," Mareak said to Darella, and they walked up to the bar. "Good evening," he said to the bartender. "The lady and I will each have a pint of your most popular brew."
+
+The bartender looked at them suspiciously, then reached over for mugs without breaking eye contact with Mareak. "Who are you, anyways?" Mareak began to speak, but Darella cleared her throat.
+
+"Let me handle this one," she said to him. She turned to the bartender and said, "I'm Darella, and this is Mareak. We're not from this plane, but I imagine that you are. We're here because Lamaramakama has something that we need."
+
+The bartender took a deep breath, then began to fill the mugs. "Well, consider yourselves lucky. If you still think that you can find him, you must be new."
+
+"New?", she looked at Mareak, who shrugged at the comment. "Yes, I suppose we are, though the way you phrased that suggested that you are not."
+
+"Certainly not," he replied. "I have been here for what feels like months. Well, not _here_ here. Every once in awhile, I find myself in some new strange setting and just have to adapt. I mean, do I look like a bartender to you?" Neither Darella nor Mareak replied, though they both took the drinks he pushed to them.
+
+"So what brought you here? And is anyone else here?"
+
+The bartender leaned over the bar and spoke more quietly. "Why I'm here isn't important anymore. And I don't see many people pass through other than some of Lamaramakama's goons. All I know is that that kitchen is bad news, and other than that, I think this place is a trap. I have been in this tavern for days now."
+
+"Well, I might as well enjoy it," Mareak said. He tipped his mug and took a long drink. He set it back down again, and it was empty. "Wow, that's amazing," he said. Can I have another?"
+
+The bartender took the mug and refilled it. "No problem. As far as I can tell, you won't need to pay for any of this." He passed the drink back to Mareak, who began to drink quickly again. "How were you planning on getting out of here? I still haven't figured this place out."
+
+"Well, I think this is all a game of imagination and willpower," Darella replied. "Unfortunately, it's kind of hard to imagine a way out when that's exactly what our adversary is trying to prevent. And to be frank, the richness of this scene makes it hard to imagine anything different." Mareak pushed his mug back across to the bartender unsteadily. The bartender complied and began to fill it again.
+
+"Well that isn't helpful at all," the bartender replied. "Believe me, as boring as this place is, it's hard to shake. I have tried to talk to everyone in this room. Twice. And it hasn't changed at all."
+
+"Another," Mareak said, pushing his mug back to the bartender as he swayed back and forth.
+
+"Not today, buddy," the bartender said. He took the mug and put it behind the bar. "You are too drunk too quickly."
+
+"No, yooouuu are too crunked too drickly," Mareak said pointing with his left hand. The bartender stared back and him, and Darella laughed quietly. Mareak glared at the bartender for a moment, then brought his arm back, bumping the patron next to him with his elbow.
+
+"Hey, that, that was rude to hit me," said Mareak. He turned to the burly man next to him, who remained completely unfazed by the elbow or threat. "Hey, loook at me," Mareak said. He poked the man in the shoulder, which also elicited no response.
+
+"Mareak, he's not going to react," Darella said gently.
+
+"No, this guy, he wants to fight," Mareak yelled back. "I can see that he wants to fight. Fight me man!" The man was about to take another drink when Mareak threw a punch straight to his face.
+
+Darella giggled, but then stopped when she realized that the entire tavern had gone silent. She looked back at the room, where everyone was staring at Mareak. The burly man he had hit stood up and turned to Mareak. He stared at the drunken elf standing in front of him, then very mechanically swung his arm back and punched at Mareak.
+
+Mareak took the blow in the side of his jaw and went flying into a circle of gnomes. As he shook off the blow and looked up, he saw the man taking awkward steps towards him.
+
+"Uh oh," the bartender said as he ducked behind the bar. 
+
+Darella quickly assessed the scene, but instead of restraining the man marching towards her companion, she looked at the waitress standing next to her. She grabbed the platter of mugs she was carrying and flung them into the crowd.
+
+"BAR FIGHT!" Mareak cried, and in an instant, the entire cavern turned to chaos. Conversations turned to boxing matches, shards of broken glasses flew everywhere, and the rumble of conversation turned into screams and crashes.
+
+Mareak staggered back to his feet in the time it took the man to wade through the crowd towards him. The man punched straight at him, but at the last second, Mareak swooned out of the way. The man took several more swings, each of which Marek narrowly dodged by twisting and rolling his body. 
+
+"Darellaaa! Darellaaa! What's our exit strategy?" he called out, staggering left and right to avoid attacks.
+
+She looked around the bar again for some way to change the situation again. On the other side of the room, she saw several of the patrons twitching strangely in the back. "Mareak, I think this tavern might be breaking down!"
+
+"That's the idea," he said as he hopped back and sucked in his stomach. "Can do you more of that?"
+
+She ducked as a mug flew over her head, then noticed the cooking fire in the corner. Keeping her head down, she weaved through the fight up to the fire and saw the coals burning within. She closed her eyes and tried to focus on the image of the coals in front of her. Shutting out the sounds around her, she began to chant.
+
+The coals began to shoot out of the pit and into the tavern. Some hit unfortunate patrons while some just left trails of burning embers. Others hit linen or alcohol lying around, and started to burn.
+
+Darella opened her eyes to see the fires slowly gaining momentum. She heard a "faster!" somewhere amidst the battle and felt the need to continue pressing. She took a deep breath and exhaled slowly. She took another deep breath, then exhaled. She took a third breath, but as she exhaled this time, a gust of wind came from her mouth, and the fires that had began suddenly erupted.
+
+Mareak looked at the tavern around him: instead of the jolly evening from before, he saw a huge battle, debris flying everywhere, and flames engulfing everything. He let out a hoot and turned back to his assailant just in time to see a fist coming for his face. He was one again lifted off the ground and flew back several feet.
+
+And landed on the cold, hard, damp stones of a prison cell.
+
+---

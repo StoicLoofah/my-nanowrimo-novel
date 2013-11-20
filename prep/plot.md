@@ -136,7 +136,7 @@
 		* Carl did not go well over january
 	6. februrary (wayne, carl)
 		* sadie
-		* Linsday
+		* Linsday went to Sadie
 		* Wayne
 		* Drew is maybe still a little down, but is resolving his failure
 		* Carl and his girlfriend are broken up by valentine's day

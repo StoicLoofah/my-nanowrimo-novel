@@ -22,3 +22,8 @@
 	* Rick asked Linsday to go to HC
 * Drew's debate partner is Christie
 	* Jimmy and Mario are the top pair
+* Ruby of Eternal Light
+* Seed of Eternal Spring
+* Sphere of Eternal Will
+* Flame Diamond
+* Kang lives in the city of Lanko

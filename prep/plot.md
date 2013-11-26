@@ -85,7 +85,13 @@
 	7. beginning of the heist quest (february)
 		* should lead into Mareak's background
 		* rob an important treasure from a shah's palace
+		* everyone gasps when Kang is mentioned
+		* go through extensive work to plan
+			* the plan will go wrong on the very first step
 	8. end of the shah's quest (march)
+		* needs to make the selfish call at some point
+		* there are a group of female assassins
+			* they all die because of a call that Mareak makes
 	9. Personal challenges (april)
 		* tower should be destroyed when they get back
 		* the security system will still be active and will deliver the item

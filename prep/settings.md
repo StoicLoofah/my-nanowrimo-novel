@@ -27,3 +27,4 @@
 * Sphere of Eternal Will
 * Flame Diamond
 * Kang lives in the city of Lanko
+* Carl wants to go to UT

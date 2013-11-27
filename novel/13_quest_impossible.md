@@ -251,4 +251,54 @@ Yannhorn heard the steps come close to him, and then he heard shuffling above hi
 
 "Yeah, I heard it was close. What happened?" Without digging, the guard replaced the lid on Yannhorn's barrel.
 
-The voice became distant again as they spoke with the cart driver about basketball. After a few moments of small talk, the cart began to move again. 
+The voice became distant again as they spoke with the cart driver about some unfamilar sport. After a few moments of small talk, the cart began to move again, then stop again. They heard several people shuffle towards the cart, and one at a time, each of their barrels was lifted out of the cart. They heard footsteps to either side of them and were carried into the compound.
+
+The path was hard to discern, but they went through a series of rooms and perhaps up and down stairs. Then, their barrels were set down with the adventurers still inside.
+
+Mareak counted and waited for 5 minutes. During this time, he could hear little from outside. Slowly, he raised the top of his barrel to take a look. The room was dark, but his elven eyes functioned just as well without light. Between the cool air and stone walls around him, Mareak guessed that they had successfully made it into the cellar. A single set of stone stairs led up, and there was a hallway leading off in the other direction, but that was all he could see.
+
+"Darella, Yannhorn, you can come out now," he said as he carefully climbed out of the barrel. Grains and fish spilled onto the ground with the adventurers.
+
+"That was vile," Yannhorn said as he tried to wipe more of the fish guts off of himself. "What's worst, you even let them the my shield away."
+
+"It obviously wouldn't fit," Mareak said. "Besides, I can't smell like fish sneaking around, and Darella's reagents are too delicate to be in there. Okay, so I think we're in the cellar right now."
+
+They heard a laugh from behind them, and they all turned with their weapons ready.
+
+"Who's there?", Darella said.
+
+"Not someone who is stuck a cellar," a male voice replied. In the darkness, they could see a door with a small window in it covered with bars. They approached slowly, and a face appeared. Although there were wisps of white hair, the human face still looked somewhat young, as though artificially aged.
+
+"Well, if this isn't the cellar, where are we?", asked Mareak.
+
+Yannhorn sighed. "This is the dungeon. I'm not sure if they found us out or if they typically keep supplies down here, but I imagine we're stuck until someone lets us out." Yannhorn walked up the stairs and tested the door. It didn't budge. "There's no lock from this side, either."
+
+"No, this is bad," Mareak said while pacing back and forth. "The timing is critical for this plan to work. Everything is at stake if we're stuck here for too long."
+
+"Be calm," said the man. "I have been here for years waiting for my opportunity, and your presence may be what I was waiting for."
+
+Although Mareak continued to pace, Darella turned to talk to the man. "What's your story?"
+
+The man smiled. "Hand me a fish, and we can continue." Darella grabbed a fish off of the ground and passed it through to the man. He grabbed it eagerly with a grin on his face and began to pick at the raw meat. "I would give you the long version, but I believe your friend won't have the patience for it, and it might be in all of our best interests if I am understood.
+
+"Several years ago, I was respected shop owner in Lanko and member of the city council. At that time, our nation was not strong, but we were proud, and we respected our traditions and ancetors. Then, Kang was a general in our army.
+
+"He was a prodigy. Despite being severely undermanned, he managed to split up his army perfectly to deal with the many incoming incursions from barbarians on bordering towns. The threat was always present, but Kang was always ready, and he came to be loved by the people.
+
+"The details of his descent are unimportant, but in summary, he became obsessed with his popularity with the people, and some members of the council feared the power he was beginning to wield. A critical vote came up about whether to strip Kang of his rank, and we were under tremendous pressure from all sides."
+
+At that moment, the prisoner looked down at his fish and picked slowly at it in silence. Darella remained close by and patient, and even Mareak had slowed his pacing and waited for him to continue.
+
+"Kang had military strength," he began again. "He threatened my family's safety were I to vote against him. Perhaps it seems noble to you, but in that moment, I felt weak, like I could do little to protect my wife and children. I could only do one thing, and that was to vote against measures to remove Kang from power.
+
+"And the situation now is what you see: Kang continued to become more powerful, and now, he is the warlord over at least Lanko, and he has influence further. That protection he gave to the people is now a very different sort of 'protection', and he drains our citizens of their hard-earned pay.
+
+"As for me, it wasn't long before Kang came anyways. Even though I had complied, he knew I had reservations, and he took my family away and locked me up down here. I do not know what has become of them, and perhaps it's best if I never know.
+
+"All I know is that I regret that decision. Had I had enough foresight to see what Kang would do, I would have voted in spite of his threat. Perhaps it makes me responsible for my family's safety, but my compliance ultimately was no service to them. Know that Kang does not compromise."
+
+The man thought for a moment but did not speak again. He continued to eat, picking at the fish bones.
+
+"Good story," Mareak said with a hint of sarcasm. "I don't think I have any reservations about making the tough call, though. I hope Kang puts a situation like that in front of me."
+
+"You wish yourself more pain than you know," the man replied. "Regardless, I understand that we are on the same side here. The guards will come to deliver me dinner in maybe a half-hour. They are not quiet, so you will notice their approach. Please rest for now, and perhaps you can readjust your plan."

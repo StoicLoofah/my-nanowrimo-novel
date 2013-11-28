@@ -1,11 +1,11 @@
 8. Plus One
-==============
+=============="
 
-"Hey Wayne!", Carl said when he opened the door. Despite the December chill outside, he saw 2 smiling faces on his doorstep. "I take it this is your sister."e
+"Hey Wayne!" Carl said when he opened the door. Despite the December chill outside, he saw 2 smiling faces on his doorstep. "I take it this is your sister."e
 
 "Yes, sir," Wayne said. "Carl, this is my sister Hannah. She's in junior high." Carl extended his hand. "Hannah, this is Carl, our dungeon master." Hannah stretched out a mitted hand.
 
-"Hi, Carl!", Hannah said with an excited handshake. "Wayne always talks about how much fun he has playing games with you, so I wanted to check it out."
+"Hi, Carl!" Hannah said with an excited handshake. "Wayne always talks about how much fun he has playing games with you, so I wanted to check it out."
 
 "Oh, of course. We're always happy to have more people join us," Carl said. "Please come in." He stepped out of the doorway to let them enter. "What grade are you in?"
 
@@ -75,7 +75,7 @@ Lindsay stood up and began to do a series of bows to her clapping audience. "Tha
 
 "Yeah, nicely done. Hannah, as explanation, the party needed to get an item from a friend hopefully without hurting him, and Lindsay remembered a trap I had put in the week before and used that to do it. Pretty clever move worth bonus experience points." Lindsay pumped her fist and sat down.
 
-"Okay, where do we get started, then?", Drew asked.
+"Okay, where do we get started, then?" Drew asked.
 
 "Let's skip the walk and start at the Sideways Tower," said Carl. "It took you a few days to walk, but everything looks normal. You arrive during the middle of the day and are standing outside."
 

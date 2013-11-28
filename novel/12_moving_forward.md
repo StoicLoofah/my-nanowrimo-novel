@@ -9,7 +9,7 @@ Carl's mom had let Lindsay in, and when she walked upstairs, she only got a few 
 
 "I hope you guys are proud of me for having asked someone and found time to go," she continued. The only response was tapping of keys on the phone and crunch of pretzels.
 
-"Hopefully you guys had good Valentine's too?", she asked hopefully. Carl slumped forward and put his head in his hands.
+"Hopefully you guys had good Valentine's too?" she asked hopefully. Carl slumped forward and put his head in his hands.
 
 "Now you did it," Drew said. He grabbed his cup of water and took a long sip. Wayne put his phone face down on the seat next to him. and grimaced at Lindsay.
 
@@ -17,7 +17,7 @@ Lindsay leaned over to Drew and whispered, "Did what? What's new?"
 
 "Carl. Marie," he whispered back and shook his head.
 
-Lindsay's eyes widened in shock, then immediately returned to a normal state. She scratched her head. "What happened?", she whispered back.
+Lindsay's eyes widened in shock, then immediately returned to a normal state. She scratched her head. "What happened?" she whispered back.
 
 "What happened," Carl said loudly with his head still down, "was that I was planning to go visit her at college for Valentine's Day, and the night before while I'm packing, we video chat, and she broke up with me."
 
@@ -29,7 +29,7 @@ Lindsay's eyes widened in shock, then immediately returned to a normal state. Sh
 
 "To be honest, you don't actually sound that excited about that right now," Drew replied. Carl rolled his head to the side to stare at Drew. Drew recoiled and put his hands up. "My bad. But seriously, did you want to talk about it?"
 
-"What's to talk about?", Carl asked. He pushed himself back to a sitting position.
+"What's to talk about?" Carl asked. He pushed himself back to a sitting position.
 
 "Apparently a lot," Lindsay said. "Being an entirely impartial judge of relationships, people only say stuff like that when they have too _much_ to talk about. Have you talked to her since the breakup?"
 
@@ -39,17 +39,17 @@ Lindsay's eyes widened in shock, then immediately returned to a normal state. Sh
 
 "She said that she felt 'trapped', whatever that means." Drew coughed on his pretzel, waved off the attention, then gestured for Lindsay to continue.
 
-"Did she give you any examples?", Lindsay asked.
+"Did she give you any examples?" Lindsay asked.
 
 "No." Lindsay looked nervously at Drew and Wayne for next steps. Drew shook his head, but Wayne jumped.
 
-"Well, what was the last thing that she reacted badly to?", Wayne asked. "Did you talk about anything touchy on the phone, or was winter break the last tough time?"
+"Well, what was the last thing that she reacted badly to?" Wayne asked. "Did you talk about anything touchy on the phone, or was winter break the last tough time?"
 
 Carl didn't respond immediately. He picked up a 20-sided die, which he tossed back and forth as he thought back through the past few weeks. "I don't remember anything in particular coming up, so I guess Christmas time is the biggest problem I remember."
 
 "Strange," Lindsay replied. "That's really strange because I felt like you didn't do anything really unusual over Christmas, at least as much as you told us."
 
-"I know!", Carl exclaimed. 
+"I know!" Carl exclaimed. 
 
 After another silence, Drew cleared his throat. "Carl, I'm going to go out on a limb here. The disclaimer is that I don't know much about these sorts of things, and to be honest, I actually don't know a lot about you other than as our dungeon master."
 

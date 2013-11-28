@@ -25,7 +25,7 @@ Drew immediately smiled and dropped the pile of papers in his hand. "Wow, congra
 
 "Well, maybe, maybe not."
 
-"Wait, what?", Lindsay exclaimed. "It's a full ride! How can you not go? Wasn't it at the top of your list?"
+"Wait, what?" Lindsay exclaimed. "It's a full ride! How can you not go? Wasn't it at the top of your list?"
 
 "Okay, calm down, Lindsay," Wayne said soothingly. "I'm not sure what's going to happen, but for right now, there are a lot of factors to consider. The biggest one is that Austin is quite far from here, and my family might still need me around here. My mom still hasn't fully recovered."
 
@@ -53,7 +53,7 @@ Wayne shook his head. "I totally get it, but really, the most important thing is
 
 Carl tapped his fingers on the top of his closed laptop a few times. "I'm holding up fine. Yeah, sorry for the rough session last time. I definitely wasn't in the right mindset to play, but as the DM, I figure that it's most important that I have a good showing for the game and keep things moving. But I am feeling better now."
 
-"Have you talked to Marie?", Wayne asked.
+"Have you talked to Marie?" Wayne asked.
 
 "Yes." Carl didn't continue, but everyone else continued to look at him. After a few seconds, Carl let out an awkward laugh. "Sorry, I wasn't planning on sharing more. We're okay. Let's just leave it at that."
 
@@ -69,10 +69,10 @@ Linsday perked up at the mention of the dance recital. "Yeah! I really enjoyed i
 
 "Heck yes," Wayne exclaimed. "I take a lot of pride in that sort of thing, though I know that working it out with you is the best way to ensure that conditions change enough for the entire plan to be invalid." Carl laughed unsympathetically.
 
-"Was there enough time for me to meditate and memorize new spells?", Lindsay asked. "Remember, I didn't expend most of my slots."
+"Was there enough time for me to meditate and memorize new spells?" Lindsay asked. "Remember, I didn't expend most of my slots."
 
 Carl squinted at his laptop screen and scrolled through a few pages. "Yeah, that should be fine. Swap out whatever you want right now." Lindsay began to erase data on her character sheet.
 
-"And what's the situation with my hand?", Wayne asked.
+"And what's the situation with my hand?" Wayne asked.
 
 "Still numb. Probably will be until the end of the adventure. Same penalty applies, and try to play through it. Any other questions?" Carl looked back and forth across everyone several times, then nodded. "Sounds good. Let's start."

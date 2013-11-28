@@ -9,7 +9,7 @@ Dungeon Investigators Inc. stood outside of the sideways tower. Yannhorn strode 
 
 "Not the worst idea," said Mareak. "I could use some bonus cash on the side. Unfortunately, I didn't factor in the travel time into our anticipated hourly rate for this trip. I may demand more from Feenious."
 
-"Yes! Feenious is here!", they suddenly heard. They looked around for the source, and Mareak was the first one to find it. He pointed toward the tip of the tower off to their right, where they saw Feenious waving out of the window, also sideways.
+"Yes! Feenious is here!" they suddenly heard. They looked around for the source, and Mareak was the first one to find it. He pointed toward the tip of the tower off to their right, where they saw Feenious waving out of the window, also sideways.
 
 "I'll be right down!" Feenious cried at them. He retreated back from the window. Despite the distance, the party could hear gurgling water, metallic crashes, breaking glass, chicken clucking, falling books, and snapping wood coming down the length of the tower. The sound continued as it hit the right angle in the tower and came down the vertical floors. Just as the sound reached the doorway in front of them, the door flew open, and they saw Feenious standing there, perfectly composed.
 
@@ -119,11 +119,11 @@ Darella dropped back several steps and looked around. She knelt and touched the 
 
 Seeing two of their friends go down, the rest of the mosquitos turned back into fairies and fluttered off.
 
-"Wait, I have to deal with one of you, too!", called out Yannhorn. He ran several steps forward after them, then gave up. "Well, there goes my moment of glory."
+"Wait, I have to deal with one of you, too!" called out Yannhorn. He ran several steps forward after them, then gave up. "Well, there goes my moment of glory."
 
 As he came back to the others, one of the fairies began to slowly come to.
 
-"Woah, where am I?", the fairy asked in a small but sweet, feminine voice.
+"Woah, where am I?" the fairy asked in a small but sweet, feminine voice.
 
 "You're in good company, sister," Mareak said. "We can be friends if you don't attack again, okay?" He picked the fairy up off of the ground.
 
@@ -171,7 +171,7 @@ The others also grabbed fruits off of the tree and began nibbling. Hannah tried 
 
 "This plane maybe isn't so bad," said Mareak while eating his third orange. "I feel like I have to apologize to you, Hannah. I thought you were leading us into a trap, but this is quite pleasant."
 
-When Mareak said the word "trap", Hannah's eyes went wide, and she flew in close to Mareak. Mareak looked around alarmingly, then found the source of concern.
+When Mareak said the word "trap," Hannah's eyes went wide, and she flew in close to Mareak. Mareak looked around alarmingly, then found the source of concern.
 
 They heard a series of hoots and screams from the tree, and a bunch of monkeys rappelled down. Before any of the party could react, the monkeys swarmed each of them, pinning them down and slapping them.
 
@@ -181,7 +181,7 @@ Yannhorn tried to shove them away, but his limbs weren't long enough to get enou
 
 Darella was surprised the most and took several bites from the monkeys before realizing they were under attack. When she realized the nature of her attackers, she uttered a quick spell.
 
-"Stop!", she yelled, and the monkeys around her all froze. "Back!" The monkeys, completely under her spell, all stepped backwards several steps. Darella stood up and ran over to help the others.
+"Stop!" she yelled, and the monkeys around her all froze. "Back!" The monkeys, completely under her spell, all stepped backwards several steps. Darella stood up and ran over to help the others.
 
 Mareak quickly scanned the scene and saw a monkey clutching something in its hands. He ran over to the monkey and gave it a kick in the back, upon which it let loose Hannah and fell face-first. Hannah flew up and out of reach of any monkeys. Mareak then turned back to see Yannhorn continuing to struggle. With the help of both Mareak and Darella, Yannhorn managed to push away all of the monkeys.
 
@@ -189,7 +189,7 @@ Mareak quickly scanned the scene and saw a monkey clutching something in its han
 
 "Don't worry about it," said Mareak. "We're still a team. Right, Hannah?"
 
-"Right!", she replied. "Thanks for the help there, sort of."
+"Right!" she replied. "Thanks for the help there, sort of."
 
 Mareak wrinkled his brow at this comment. "You're welcome? What do you mean 'sort of'?"
 

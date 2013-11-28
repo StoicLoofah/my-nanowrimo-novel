@@ -1,7 +1,7 @@
 7. Choosing Sides
 ==================
 
-"Hewman scummmm," the gnoll said. The words came out unnaturally and with a rumbling quality. "You come, you kill..."
+"Hewman scummmm," the gnoll said. The words came out unnaturally and with a rumbling quality. "You come, you kill...""
 
 "Hey, you started it!" yelled Darella. She tried to keep her stare on the gnoll speaking to her, but the suspending net slowly spun, and he left her sight until she came around again. "The dryads have done nothing to you, and yet you have been attacking them!"
 
@@ -19,11 +19,11 @@ On their trek, they saw the more mundane side of gnoll life. They saw female gno
 
 "You know, I don't think I ever really considered that even gnolls have a home life," commented Mareak. "I guess the men spend all of their time catching wandering adventurers, and the women keep the men in top raiding shape. I wonder where the kids are, though."
 
-"That's a really good question. And look at all of the damage," said Yannhorn. He pointed to a series of crushed huts where gnolls were picking through debris. "I guess gnoll domestic violence must be extra vicious. Yeow!", he screamed as a gnoll poked him again with a spear.
+"That's a really good question. And look at all of the damage," said Yannhorn. He pointed to a series of crushed huts where gnolls were picking through debris. "I guess gnoll domestic violence must be extra vicious. Yeow!" he screamed as a gnoll poked him again with a spear.
 
 "Quiettt," the lead gnoll said as they slowed to a halt. "Be still," he said to them, and the other gnolls, weapons out, started to back away. When they had gotten a few feet away, a cage fell from above with a clang, trapping the party. The lead gnoll walked back up to them and banged on the metal cage with his axe. "Stay," he said, then walked away.
 
-"Wait!" cried Mareak as he ran towards that side of the cage. "What's going to happen to us next?" The gnoll kept walking, and two other gnolls stepped up close to the cage to keep guard. "Do either of you know what's going on?", Mareak addressed them. One of the snarled at him, and Mareak backed away to the center of the cage with the others.
+"Wait!" cried Mareak as he ran towards that side of the cage. "What's going to happen to us next?" The gnoll kept walking, and two other gnolls stepped up close to the cage to keep guard. "Do either of you know what's going on?" Mareak addressed them. One of the snarled at him, and Mareak backed away to the center of the cage with the others.
 
 "I know what you're thinking: don't even try," said Darella, who slumped to the ground. "You can't sweet talk a creature who doesn't speak Common."
 
@@ -133,7 +133,7 @@ The gnoll stood over him with the axe, ready to deliver the final swing. Darella
 
 Before the gnoll could react, Mareak stabbed at both of his legs and danced away. The gnoll tried to turn, but he found himself slowed by the cuts. Suddenly energized, Mareak moved quickly around the gnoll and made a series of stabs all around his body. The gnoll tried to swing his axe, but Mareak was too quick to be caught out of position and was already in a new place. Seconds later, Mareak held the gnoll with his left hand and had his club handle against the gnoll's neck.
 
-"What's the gnoll word for 'mercy'?", he asked.
+"What's the gnoll word for 'mercy'?" he asked.
 
 ---
 
@@ -311,7 +311,7 @@ Darella ran back towards the battle that raged on. She found Mareak and Yannhorn
 
 ---
 
-"Okay, you have to explain: what made you make up your mind?", asked Mareak as they toasted each others' pints in the warmth of the Burned Skillet.
+"Okay, you have to explain: what made you make up your mind?" asked Mareak as they toasted each others' pints in the warmth of the Burned Skillet.
 
 "I don't know," said Darella. "I thought long and hard about it, and I realized that I was thinking about it all wrong.
 

@@ -29,7 +29,7 @@ Darella rolled her eyes. "Well, this is obvious. It might literally be the oldes
 
 Darella began pacing. Mareak tried several times to sneak past the guards, but they turned him back each time, though they did not obviously become any more perturbed than the previous time.
 
-Abruptly, Darella stopped and walked up to one of the guards. "Hello! Anyone in there?", she yelled in its face. The guard didn't move. She moved slowly towards the guard, who didn't flinch. Gently, she reached up to its visor and flipped it open. Inside, there was nothing.
+Abruptly, Darella stopped and walked up to one of the guards. "Hello! Anyone in there?" she yelled in its face. The guard didn't move. She moved slowly towards the guard, who didn't flinch. Gently, she reached up to its visor and flipped it open. Inside, there was nothing.
 
 "That is spooky," Mareak said.
 
@@ -59,9 +59,9 @@ Darella and Mareak were silent and deep in thought.
 
 "I have a winner here," said Darella, taking a deep breath. "Why was six afraid of seven?"
 
-"Because 'seven eight nine'!", one of the guards said, and they began then rattle again.
+"Because 'seven eight nine'!" one of the guards said, and they began then rattle again.
 
-"Hah! You're wrong!", Darella exclaimed. The guards quieted down and awaited an explanation.
+"Hah! You're wrong!" Darella exclaimed. The guards quieted down and awaited an explanation.
 
 "Because," Darella began, "seven was a known 'six offender'."
 
@@ -119,7 +119,7 @@ Inside, Darella and Mareak were standing in a loud tavern. Behind them, the door
 
 Darella walked up close to a dwarf and human laughing over a drink, and though she moved close enough to eat the chicken leg on the table, they didn't react and continued their conversation. "Look at this," she said, pointing to the dwarf. "He's drinking, but the amount of liquid in his cup isn't changing. I don't know if there's an intelligent being in this room other than myself."
 
-Mareak walked up to the stage where several performers were playing and surveyed the entire room. Darella walked through the tables several more times before joining Mareak. "Well, this is supposed to be a test, right?", Mareak asked. "Do you see anything unusual around here? Anything that may be our next step?"
+Mareak walked up to the stage where several performers were playing and surveyed the entire room. Darella walked through the tables several more times before joining Mareak. "Well, this is supposed to be a test, right?" Mareak asked. "Do you see anything unusual around here? Anything that may be our next step?"
 
 "No, and believe me, I'm trying to imagine something more interesting. There is the door back there, presumably to the kitchen," she pointed out. "Let's try that."
 
@@ -135,7 +135,7 @@ The bartender looked at them suspiciously, then reached over for mugs without br
 
 The bartender took a deep breath, then began to fill the mugs. "Well, consider yourselves lucky. If you still think that you can find him, you must be new."
 
-"New?", she looked at Mareak, who shrugged at the comment. "Yes, I suppose we are, though the way you phrased that suggested that you are not."
+"New?" she looked at Mareak, who shrugged at the comment. "Yes, I suppose we are, though the way you phrased that suggested that you are not."
 
 "Certainly not," he replied. "I have been here for what feels like months. Well, not _here_ here. Every once in awhile, I find myself in some new strange setting and just have to adapt. I mean, do I look like a bartender to you?" Neither Darella nor Mareak replied, though they both took the drinks he pushed to them.
 
@@ -197,13 +197,13 @@ And landed on the cold, hard, damp stones of a prison cell.
 
 Mareak sat up and rubbed his jaw. The prison cell was barely lit by a small window several feet off the ground, and he could see a rolling pink-purple landscape outside. It cast a strange light about the prison cell, and he could barely make out various people chained against the wall.
 
-Darella stood next to him and helped Mareak to his feet. "Who said that?", she called out. 
+Darella stood next to him and helped Mareak to his feet. "Who said that?" she called out. 
 
 "Guys, it's me," the voice said again. "It's Yannhorn."
 
 They rushed over to the corner where they heard the voice, and up close, they could see the unmistakeable stature and features of the halfling in shackles against the wall.
 
-"Unbelievable!", Darella said. "How did you end up in here? Wait a second: how do we know it's you?"
+"Unbelievable!" Darella said. "How did you end up in here? Wait a second: how do we know it's you?"
 
 Yannhorn thought for a second. "Uh, well, I am right here. It kind of has to be me, right?"
 
@@ -213,7 +213,7 @@ Mareak pondered this point for a moment, then agreed. "Good point. Well, I'm gla
 
 "Hmm," Mareak said. He ran his fingers over the length of the chain. "Looks like you're right. I guess we'll just have to blast our way out of this dream."
 
-"Hah!", a voice called from the darkness. "Like you'll ever figure that one out." The voice was filled with the cynicism of an old man.
+"Hah!" a voice called from the darkness. "Like you'll ever figure that one out." The voice was filled with the cynicism of an old man.
 
 "We got out of a tavern," Mareak retorted.
 
@@ -245,7 +245,7 @@ The party looked at each other with concern.
 
 "See, I guess that's the problem," Yannhorn quickly said, then retreated. He sat silently.
 
-"What's the problem?", Darella asked after a few seconds.
+"What's the problem?" Darella asked after a few seconds.
 
 Yannhorn didn't respond immediately. He looked up at Darella, then back down. "I feel like I'm not contributing to the team like you guys are. I can't conjure plants to fix everything. I can't dance with a gnoll to win respect. What I can do is slip in the mud and fail to fight off a mosquito, and then make a snarky comment about it."
 
@@ -287,7 +287,7 @@ Mareak began to reach for his dagger, but Yannhorn put his own hand over Mareak'
 
 "Wait," Yannhorn said. "I think I have this one."
 
-"How?", Mareak said. He didn't move his hand from his dagger. "We got riddles before, and they were all tricks. There's a really easy way to get this done."
+"How?" Mareak said. He didn't move his hand from his dagger. "We got riddles before, and they were all tricks. There's a really easy way to get this done."
 
 Yannhorn closed his eyes for a moment and nodded. "I know. It is really easy. It's just over there." He pointed out with his other hand, and when everyone looked in that direction, they saw a crystal sphere floating on a pedestal.
 

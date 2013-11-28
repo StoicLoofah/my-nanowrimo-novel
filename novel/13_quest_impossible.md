@@ -7,7 +7,7 @@ They walked into the same circular room, and they saw Feenious running down the 
 
 "I'm here," he said, muffled by the couch cushion. Feenious lifted himself up, put his hat back on, and smiled to the concerned adventurers in front of him. "Sorry, I wasn't expecting you at the front door. Why didn't you come back via the chair portal?"
 
-"We were supposed to use the chair again?", Mareak asked. "How were we supposed to that?" As he spoke, Yannhorn and Darella sat down in their usual spots while Mareak continued to stand to avoid sitting right next to Feenious.
+"We were supposed to use the chair again?" Mareak asked. "How were we supposed to that?" As he spoke, Yannhorn and Darella sat down in their usual spots while Mareak continued to stand to avoid sitting right next to Feenious.
 
 Feenious laughed. "Quite obvious, really. You just needed to find the original spot you came into the plane from and rearrange yourselves in the same position." Mareak gave him a look of confusion and skepticism but said nothing. Feenious continued without acknowledging him. "So did you find it?"
 
@@ -15,7 +15,7 @@ Feenious laughed. "Quite obvious, really. You just needed to find the original s
 
 "Impressive," Feenious said, "very impressive." He held it in both hands in his lap and looked deeply into it. "Does it have a name?"
 
-"Ball of Eternal Will?", Mareak guessed.
+"Ball of Eternal Will?" Mareak guessed.
 
 "_Sphere_ of Eternal Will," Darella corrected.
 
@@ -23,7 +23,7 @@ Feenious laughed. "Quite obvious, really. You just needed to find the original s
 
 "I think that's pretty consistent with what we saw in the other plane," replied Darella over her shoulder as she grabbed more coins off of the ground. "So what's up next? Do we have to find the 'Staff of Eternal Force'?"
 
-"Or maybe the 'Helm of Eternal Power'?", guessed Yannhorn.
+"Or maybe the 'Helm of Eternal Power'?" guessed Yannhorn.
 
 "No, it's got to be the 'Tome of Eternal Knowledge'," said Mareak.
 
@@ -61,13 +61,13 @@ Lanko was unlike any city in Shermland. The buildings were made of brick, but th
 
 The party entered the noodle shop. Inside, there were several long tables with benches, and in the back, they saw a kitchen filled with steam. Cooks were stretching and pulling noodles, and servers scurried back and forth with hot bowls of noodles. No one came to greet the party, so they sat down at a table next to several laughing peasant women. A server quickly sat down a pot of tea and a stack of cups and ran off again.
 
-"So, what's the plan?", Darella asked.
+"So, what's the plan?" Darella asked.
 
 "No plan. I'm just hoping for information," replied Yannhorn.
 
 "Shh," Mareak said. "Talk quietly. I'm scanning the room for relevant details."
 
-"Who put you in charge?", Yannhorn asked.
+"Who put you in charge?" Yannhorn asked.
 
 Mareak replied while looking around the room, "We need to execute a heist in a new and unfamiliar place. I think you should let the rogue lead."
 
@@ -85,7 +85,7 @@ When Mareak said the word Kang, the entire restaurant instantly went silent. The
 
 "Oooohhh, hot," he said. He reached it cool off his hand with his tea, but when he dumped that over his hand, it stung even more. 
 
-"You must not invoke his name!", said one of the other women at their table. "As outsiders, you must be more careful! Only bad karma will follow you if you continue to test him, like the scalding water on your hand."
+"You must not invoke his name!" said one of the other women at their table. "As outsiders, you must be more careful! Only bad karma will follow you if you continue to test him, like the scalding water on your hand."
 
 "Well, technically, it was your reaction to his mention that caused that," Darella pointed out.
 
@@ -99,7 +99,7 @@ The women looked between themselves again before the leader answer again. "Why d
 
 "Shush," Darella interrupted. "Ladies, we're not at liberty to say, but we just need to know where to go to find him."
 
-"What do they care?", Yannhorn replied. "Her reaction earlier indicated that she's no friend of this warlord guy, and given the fear and title, I think he might have more than a few enemies around here." Darella thought for a moment, then nodded her consent. "Good. See, this warlord has a jewel that we really need to save the world, and we would like to get it back from him."
+"What do they care?" Yannhorn replied. "Her reaction earlier indicated that she's no friend of this warlord guy, and given the fear and title, I think he might have more than a few enemies around here." Darella thought for a moment, then nodded her consent. "Good. See, this warlord has a jewel that we really need to save the world, and we would like to get it back from him."
 
 "I see," the woman replied. "Well, perhaps we might be on the same side. The warlord lives in the walled compound near the barracks, but it is difficult to enter." She leaned in and spoke in a low voice. "Meet us tonight just at sunset in the alley behind the herbal medicine store on Dragon Way. We can discuss more there." She stood up, and the rest of her group stood up in unison and followed her as they left the shop together.
 
@@ -117,13 +117,13 @@ The women looked between themselves again before the leader answer again. "Why d
 
 Dungeon Investigators Inc. strolled leisurely past the gate to Kang's compound amidst the afternoon crowd. The compound itself was enormous: 3 floors tall and several rooms wide and deep. Around it was a 10 foot wall that kept most of the inside out of sight. The gate itself was large enough for a cart to ride through, but the metal doors appeared hefty. Two guards stood outside with swords in their scabbards.
 
-"What do you see?", Darella asked. She kept her eyes fixed on the shops on her right while Mareak occasionally looked towards the compound to their left.
+"What do you see?" Darella asked. She kept her eyes fixed on the shops on her right while Mareak occasionally looked towards the compound to their left.
 
 "Not a lot," he replied. "The guard patrol is basically continuous, so I doubt I will find an opportunity to scale the wall unseen. I haven't noticed any defects in the wall either, which is no surprise. Let's take another pass."
 
 Mareak stopped and walked over to a food cart. "Darella, you were just talking about how hungry you were," he began. "It's my treat." He looked casually back at the gate.
 
-"I was?", she replied in surprise. Yannhorn coughed. "Oh yes, I was."
+"I was?" she replied in surprise. Yannhorn coughed. "Oh yes, I was."
 
 "Of course, my dear," said the cheerful man behind the cart. "You look absolutely famished. What would you like? A bowl of porridge? How about a freshly steamed bun?"
 
@@ -151,7 +151,7 @@ Mareak slowly backed away from the gate with his hands in the air.
 
 "Good job," Yannhorn said when Mareak reached him. "We were watching the whole thing."
 
-"Yeah, what happened?", Darella said.
+"Yeah, what happened?" Darella said.
 
 "Nothing interesting," Mareak replied. "I don't think we're getting in through the front door. We'll have to sneak in through the loading door at the back. At least I found out that there's a party tonight, so there should be plenty of food and drink going in."
 
@@ -159,7 +159,7 @@ Mareak slowly backed away from the gate with his hands in the air.
 
 ---
 
-"So, you think this is another trap?", Darella asked as they stood outside the herbal medicine store on Dragon Way.
+"So, you think this is another trap?" Darella asked as they stood outside the herbal medicine store on Dragon Way.
 
 "Probably, but it seems like the right thing to do," Yannhorn said. "You don't just run into random strangers who invite you to meet later without a good reason. Let's go, but keep your weapons ready."
 
@@ -167,17 +167,17 @@ The three walked around the side of the store. The alley was clear and led to an
 
 "Don't panic," Mareak said quietly, "but there are multiple people on the roof."
 
-"Should we turn back?", asked Yannhorn.
+"Should we turn back?" asked Yannhorn.
 
 "Nope," Mareak replied. "Darella, be ready to shield us as necessary, and Yannhorn, have your sword ready."
 
 They exited the other side of the alley and into the wider alley running behind the shops. They arranged themselves back-to-back and looked around the area. All was silent.
 
-"Get that shield up _now_!", Mareak directed. Darella reached into her pouch and threw a cloud of dust into the air. A throwing knife came flying towards them, but before they could react, it hit the cloud and fell harmlessly to to ground in a shower of sparkles.
+"Get that shield up _now_!" Mareak directed. Darella reached into her pouch and threw a cloud of dust into the air. A throwing knife came flying towards them, but before they could react, it hit the cloud and fell harmlessly to to ground in a shower of sparkles.
 
 Yannhorn brought his shield up. Darella grabbed her club. Mareak reached to pull out two daggers, but fumbled with the one out of his numb, right hand.
 
-"Here's the trap!", Yannhorn cried, and several figures appeared on the rooftops and surrounding alleys dressed in dark robes and cloth over their faces. They launched themselves at the party without weapons and struck out with their fists.
+"Here's the trap!" Yannhorn cried, and several figures appeared on the rooftops and surrounding alleys dressed in dark robes and cloth over their faces. They launched themselves at the party without weapons and struck out with their fists.
 
 Darella reacted quickly and kept her club between her and her assailant. The fists came rapidly, but she shifted back and forth to swat away blows with as little effort as possible.
 
@@ -185,13 +185,13 @@ Yannhorn held his shield up and had little difficulty deflecting blows. With a s
 
 Seeing his opponents without weapons, Mareak dropped his other dagger and began to exchange blows with his opponent. Calling on his past boxing in the streets, he kept his fists close and absorbed the blows with as little force as possible. Although he couldn't swing with his numb hand, it did serve as an effective block.
 
-"Stop!", they heard someone cry from the rooftop soon after the melee had begun. The attackers immediately backed off as the rooftop figure gracefully leapt down. "We have seen enough." 
+"Stop!" they heard someone cry from the rooftop soon after the melee had begun. The attackers immediately backed off as the rooftop figure gracefully leapt down. "We have seen enough." 
 
-"Seen enough?", asked Mareak. He dropped his fists. "Was this a test?"
+"Seen enough?" asked Mareak. He dropped his fists. "Was this a test?"
 
 "Indeed," the figure said, then took off their mask. "Good to see you again, too."
 
-"You!", Yannhorn said, pointing his sword. "You're the lady from the the noodle shop. And the rest of you," he said, slowly bringing his sword towards the other figures, "you were eating noodles, too?"
+"You!" Yannhorn said, pointing his sword. "You're the lady from the the noodle shop. And the rest of you," he said, slowly bringing his sword towards the other figures, "you were eating noodles, too?"
 
 "Yes, they're all with me. You can call me Wen. Please, let's sit in the store. We should discuss plans."
 
@@ -203,11 +203,11 @@ Seeing his opponents without weapons, Mareak dropped his other dagger and began 
 
 "Our motivations are simple." Wen stood again and began pouring out tea for everyone. "We wish to see the warlord removed from power. He has disrupted the regular flow of business to and from Lanko, and we wish to see him gone." 
 
-"By force?", Yannhorn asked. He patted his sword.
+"By force?" Yannhorn asked. He patted his sword.
 
 "If necessary, though you may have noticed that our methods are more subtle than that. You seek the Flame Diamond: if you can get so close to the warlord as to take it from him, then it should be no problem to also take the Lion's Staff, which has granted him so much power." Wen looked patiently at the party.
 
-"Why do you need us?", Mareak asked. "Apparently you have already have your entrance to the compound. We could do all of this without you."
+"Why do you need us?" Mareak asked. "Apparently you have already have your entrance to the compound. We could do all of this without you."
 
 "Perahsp," Wen replied as she swirled her cup of tea. "Opportunities to enter the compound, however, are quite rare, and had you come a day later, it may be months before you had another opportunity like the party tonight. And since you have already revealed that you have no entry plan, and we can provide that, we should be aligned."
 
@@ -229,25 +229,25 @@ Mareak glanced at Yannhorn and Darella, neither of whom had anything to add. "Fi
 
 "Nonsense," Mareak replied. "If you trust those ninja ladies, we should be fine."
 
-"Heads down!", the driver said as they approached the back of the compound. The party all ducked back down into their barrels, and in the case of Yannhorn, held their breath.
+"Heads down!" the driver said as they approached the back of the compound. The party all ducked back down into their barrels, and in the case of Yannhorn, held their breath.
 
 The horse clopped along for a short while until the cart came to a stop.
 
-"What are you bringing tonight?", they heard a muffled voice say.
+"What are you bringing tonight?" they heard a muffled voice say.
 
 "Fish and rice," the cart driver replied. "The fish is very fresh, and I would like to get it to the cooks as soon as possible."
 
 "Now, now, don't be hasty," the first voice replied. They heard footsteps approach the back of the cart. "We'll have to check your cargo. The warlord wants top priority for this event." There was silence, then they heard a lid come off of a barrel with a crack.
 
-"Hey!", the driver cried. "Inspect if you want, but don't break my barrels!" They heard the lid go back down again. Another lid opened, then closed.
+"Hey!" the driver cried. "Inspect if you want, but don't break my barrels!" They heard the lid go back down again. Another lid opened, then closed.
 
-"Satisfifed?", the driver called out.
+"Satisfifed?" the driver called out.
 
 "Not yet," the first voice said, now much closer to the party. "There are 5 barrels, and I still have 3 to go."
 
 Yannhorn heard the steps come close to him, and then he heard shuffling above him.
 
-"Wow, what a night for the Lanko basketball team tonight, huh?", came the cart driver's voice.
+"Wow, what a night for the Lanko basketball team tonight, huh?" came the cart driver's voice.
 
 "Yeah, I heard it was close. What happened?" Without digging, the guard replaced the lid on Yannhorn's barrel.
 
@@ -265,11 +265,11 @@ Mareak counted and waited for 5 minutes. During this time, he could hear little 
 
 They heard a laugh from behind them, and they all turned with their weapons ready.
 
-"Who's there?", Darella said.
+"Who's there?" Darella said.
 
 "Not someone who is stuck a cellar," a male voice replied. In the darkness, they could see a door with a small window in it covered with bars. They approached slowly, and a face appeared. Although there were wisps of white hair, the human face still looked somewhat young, as though artificially aged.
 
-"Well, if this isn't the cellar, where are we?", asked Mareak.
+"Well, if this isn't the cellar, where are we?" asked Mareak.
 
 Yannhorn sighed. "This is the dungeon. I'm not sure if they found us out or if they typically keep supplies down here, but I imagine we're stuck until someone lets us out." Yannhorn walked up the stairs and tested the door. It didn't budge. "There's no lock from this side, either."
 

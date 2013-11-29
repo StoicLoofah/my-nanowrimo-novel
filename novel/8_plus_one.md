@@ -19,7 +19,7 @@
 
 "Uh, good," Hannah replied, somewhat confused. Wayne laughed.
 
-"Not fair," he said. "My family is going with a no-pressure strategy for what she wants to do." Wayne turned to address Hannah. "Of course, we're totally behind you whatever you want to do. Lindsay's a math nerd, Drew is a debator, Carl is in band, and you know what I do, so there's a lot of talent around the table."
+"Not fair," he said. "My family is going with a no-pressure strategy for what she wants to do." Wayne turned to address Hannah. "Of course, we're totally behind you whatever you want to do. Lindsay's a math nerd, Drew is a debator, Carl is in orchestra, and you know what I do, so there's a lot of talent around the table."
 
 "...except in-game decision-making," said Carl as he arranged papers on the table. "I believe all of you lack talent there. Now that I'm thinking about it, though, how did state go?"
 

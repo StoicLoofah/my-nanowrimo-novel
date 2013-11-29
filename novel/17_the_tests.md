@@ -119,7 +119,7 @@ Yannhorn charged at the avatar and in one clean blow, he cleaved the staff in ha
 
 His warrior training took over, and he steadily drove the avatar backwards. The avatar parried with one staff and attacked with the other, but Yannhorn shrugged off the sting and burns. As he pushed the avatar back, he saw his opportunity and took one large swing.
 
-The avatar put both of his staves up to block, but it wasn't enough and he was pushed backwards. Stunned, he reacted just in time for Yannhorn's follow-up and deliberately jumped backwards out of the open window. Yannhorn stopped his sword short and looked out the window to see the avatar flying like a bullet towards the center of town. In his head, Yannhorn ran through the landmarks in that direction and realized where he needed to go.
+The avatar put both of his staves up to block, but it wasn't enough and he was pushed backwards. Stunned, he reacted just in time for Yannhorn's follow-up and deliberately jumped backwards out of the open window. Yannhorn stopped his sword short and looked out the window to see the avatar flying like a bullet towards the center of town. Looking down, he saw fire rain down upon the guards. In his head, Yannhorn ran through the landmarks in that direction and realized where he needed to go.
 
 ---
 
@@ -170,3 +170,53 @@ Frightened, the priest put her hands up. She motioned for one of the other pries
 "Indeed," Mareak replied. He snatched the dagger out of the other priest's hands and ran back out of the room and into the city again.
 
 ---
+
+Darella ran through the streets of Ryden on her way to the market. Fortunately, her way was basically unimpeded as the streets were entirely vacated and doors were shuttered. Before she arrived, however, she heard a ruckus coming from a storefront. Without a second thought, she ran up to the door, and she saw that the lock had clearly been bashed in. Pulling out her club, she slowly opened the door and walked in.
+
+Inside was a wide variety of potions and alchemy equipment. Colored liquids lined the shelves, and stands inside were cluttered with instruments, vials, and unusual reagents. From the door inward, however, there was a string of broken equipment and spilled liquids. Following the damage, it led to the counter, where she saw two wiry men menacing the shop owner with daggers.
+
+The store owner saw Darella enter the shop. "Please, help me!" he cried out. Both of the ruffians turned to look at Darella. She continued to slowly approach them, club ready.
+
+"Is this one of your friends?" one asked the shop owner.
+
+"Yes, of course," the shop owner pleaded. "Please, get them out of here! They're here to loot my potions."
+
+Darella stopped when the ruffians turned their dagger towards her. "I don't know this man, but I think both of you should leave right now, and no one will get hurt."
+
+Without warning, the ruffians attacked. Darella brought her club up to block one dagger, and she kicked out at the other, knocking them back. They both stepped back to strategize and determine how they would overwhelm this new formidable foe. They launched forward again, and in one smooth motion. Darella slapped away both of their daggers with her club. The shop owner cheered as he peered out from beneath his counter.
+
+"Now leave," she said firmly. The two men looked terrified, but then one of them grabbed a whistle out of his pocket and blew. Darella waited for a moment for a reaction, then heard footsteps from outside. In came another 3 ruffians, also with daggers, and they surrounded Darella.
+
+"Yield," one of them said. "You're the one who should be leaving."
+
+Darella looked around at her opponents. She carefully sized each of them up as they continued to wave their daggers. The first two quietly walked over to the corner where their daggers had fallen and picked them up.
+
+Darella lowered her club. "Fine." The ruffians cleared a path between her and the door, and she started for the door.
+
+"Wait!" the shop owner cried. "How can you not fight them? I'm sure you could take twice as many of them!"
+
+Darella stopped but didn't turn. "Perhaps, but my role here has ended. I'm not here to protect you: my presence is an accident, and clearly fate is stacked against you now. Without the guards ever present, you have not adequately defended your shop. I will not interfere with how this situation will unfold. I believe that the universe will right itself towards balance, and perhaps in the long run, you will learn to take better precautions."
+
+The ruffians snorted but left Darella alone as she exited. Before closing the door, she heard the shop owner whimpering.
+
+---
+
+"What took you so long?" Mareak asked as Darella joined him and Yannhorn at the edge of the market. 
+
+"Just a few idiots," she replied. "How long have you been watching this?"
+
+"Not long. Yannhorn and I just got here."
+
+In the center of the market square stood a single figure with several dogs runninga around him. Across the square were red, glowing markings on the ground. From their angle, they couldn't determine the pattern or nature of the markings, but they pulsed with the movements of the figure. The same or a very similar fissure to the last one in the market had reappeared, and a red glow came from that as well, but no kobolds emerged. Above, the sky had turned gray.
+
+"Any idea what's going on?" Mareak asked. "I see the hellhounds, which I ran into earlier at the Temple of the Moon."
+
+Yannhorn narrowed his eyes. "Well, the guy in the middle is Malafar's avatar. He was doing some ritual at the Hungry Rabbit, but he fled, and I guess he's finishing up the job here."
+
+They both looked at Darella, but she shrugged. "I have nothing to add here. Shall we step forward?" The others nodded, but before they could even take the first step, they heard a crackling noise. 
+
+The markings hummed and slowly increased in pitch with the crackling sound. Then, the ground violent shook, throwing all three of them to the ground. Taking cover, the ground continued to quake for several seconds. Out of the corner of his eye, Mareak saw the avatar and hellhounds standing very calmly at the center of the chaos.
+
+They stood again when the shaking had stopped, but the damage had already been done. Buildings had collapsed, and there were long cracks through the ground. They heard the cries of people in the distance.
+
+"Okay, I think we're done with the beginning of the end," Mareak said. He pulled out the Dagger of the Moon in one hand and his trusted dagger in the other. "This is the end. Let's go."

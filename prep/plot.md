@@ -148,7 +148,7 @@
 		* Carl and his girlfriend are broken up by valentine's day
 	7. march (wayne)
 		* spring break!
-		* Linsday
+		* Linsday went to her friend's dance recital
 		* Wayne is very anxious about college acceptance
 		* Drew helps the champion prep more
 		* Carl bounces back a little bit
@@ -156,7 +156,7 @@
 		* college acceptances mailed out
 		* Linsday
 		* Wayne is doing college visits
-		* Drew comes back strong
+		* Drew comes back strong and feels good about helping out the champ
 		* Carl
 	9. may (everyone)
 		* 

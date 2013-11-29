@@ -41,7 +41,7 @@ Lindsay didn't immediately react. "Wait, who's Mickey?"
 
 Lindsay's eyes opened wide in realization. "Oh, I got it. Well, congrats. Going as friends?"
 
-"Yeah, I figured it was better that way," Carl said. "I'm still reeling a little bit, so I went with a safe choice: there are no expectations, and we can just go and have fun." Linsday nodded her approval but said nothing more. "Are we ready to start, then?"
+"Yeah, I figured it was better that way," Carl said. "I'm still reeling a little bit, so I went with a safe choice: there are no expectations, and we can just go and have fun. There's no pressure." Linsday nodded her approval but said nothing more. "Are we ready to start, then?"
 
 "Okay, one more thing," Linsday said. "Can we talk about what happened at the end of the last session? Wayne, how could you leave Wen's agents behind?"
 

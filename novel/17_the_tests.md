@@ -119,7 +119,7 @@ Yannhorn charged at the avatar and in one clean blow, he cleaved the staff in ha
 
 His warrior training took over, and he steadily drove the avatar backwards. The avatar parried with one staff and attacked with the other, but Yannhorn shrugged off the sting and burns. As he pushed the avatar back, he saw his opportunity and took one large swing.
 
-The avatar put both of his staves up to block, but it wasn't enough and he was pushed backwards. Stunned, he reacted just in time for Yannhorn's follow-up and deliberately jumped backwards out of the open window. Yannhorn stopped his sword short and looked out the window to see the avatar flying like a bullet towards the center of town. Looking down, he saw fire rain down upon the guards. In his head, Yannhorn ran through the landmarks in that direction and realized where he needed to go.
+The avatar put both of his staves up to block, but it wasn't enough and he was pushed backwards. Stunned, he reacted just in time for Yannhorn's follow-up and deliberately jumped backwards out of the open window. Yannhorn stopped his sword short and looked out the window to see the avatar flying like a bullet towards the center of town. Looking down, he saw fire rain down upon the guards. In his head, Yannhorn ran through the landmarks in that direction and realized where he needed to go. He grabbed the Sphere of Eternal Will still sitting on the ground and dashed back out of the inn.
 
 ---
 

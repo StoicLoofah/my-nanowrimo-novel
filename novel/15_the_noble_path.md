@@ -69,7 +69,7 @@ She set the trays down on the nearest table and bowed her head. "Forgive me. The
 
 "Fine," Mareak replied. "The important thing is that our team is still intact." He looked over at the agents. "That map Wen showed me: it's useless. It's completely inaccurate. And there's no way we're making it to the second floor through the guards in the one staircase we saw."
 
-"Apologies," one of the agents replied. "They have been remodeling. But at least the second floor should be accurate. Those were taken more recently." Mareak rolled his eyes and shook his head. "We are relying on your expertise here. What is our new plan?"
+"Apologies," one of the agents replied. "They have been remodeling. But at least the second floor should be accurate. Those were taken more recently." Mareak rolled his eyes and shook his head. "We are relying on your expertise here. The spell is set, but I do not know how we will use it now. What is our new plan?"
 
 "We'll figure it out as we go," he replied. "Continue to wait for my signal, and we'll find you in the main hall if we need anything else from you. Thank you for your asistance." The agents bowed to him in unison then filtered out and back to their regular duties.
 
@@ -93,7 +93,7 @@ Each pull she did was more strained, but they noticed that the wooden ceiling be
 
 Together, they dragged the wardrobe from the corner while Darella recovered from the spell. Once the wardrobe was positioned, Mareak hopped up first and looked into the room above. It was dark except for the light coming in from underneath, and he saw no one.
 
-"I think we're in the right place," Mareak said. He lifted himself up and into the room and motioned for the others to follow him. When he looked up again, there were 2 guards standing in the doorway looking at the hole in the ground, then up at him.
+"I think the map of the second floor was bad, too," Mareak said. "I don't see the Diamond in here, but this is still the best way to go." He lifted himself up and into the room and motioned for the others to follow him. When he looked up again, there were 2 guards standing in the doorway looking at the hole in the ground, then up at him.
 
 "Bring it," Mareak said menacingly. He reached into belt to grab his dagger, but as he brought it around, the dagger felt fat and awkward in his numb hand, and he flung it across the room.
 
@@ -117,13 +117,147 @@ He opend his eyes again to see the guard hanging limply with a sword through his
 
 Mareak nodded his appreciation as Darella pulled herself into the room.
 
-"Good work, boys," Darella said. She saw them standing in a dark corner catching their breaths. "Time is short. Let's keep moving."
+"Good work, boys," Darella said. She saw them standing in a dark corner catching their breaths. "Time is short. Let's keep moving. Maybe a little quieter for the rest of this heist?"
+
+"Yeah, agreed," Mareak said. Mareak picked up his dagger and tucked it back into his belt, then took his pack off. "You two wait here for a moment. I'm going to scout ahead. Watch my stuff."
+
+Mareak crept out into the hallway and looked in both directions. Seeing no one, he turned right and moved quietly past several rooms, again not recognizing anything from the map he had seen. He reached an intersection and heard voices ahead. He pressed himself up against a wall and peeked around the corner. There, he saw 5 guards standing around a single doorawy chatting.
+
+"So how many men are we down?"
+
+"Not sure, but maybe around 8?"
+
+"By the gods. What's our next move?"
+
+"Secure everything. No one goes in or out of the main hall, so absolutely no one enters the second floor."
+
+"And the warlord's chambers?"
+
+"No special guard. We double the patrols but do not draw attention to this room. Remain as a single patrol of 4, and if you see trouble, call for help. There are no heroes today."
+
+One of the guards walked away, leaving the others to work together. They talked briefly again in a quieter voice, then began walking down the hallway in the other direction. Mareak stayed still for several more seconds, then peeked again and saw that they had left. He quietly ran up to where they were just standing and looked at the door before him.
+
+At first glance, the door looked unremarkable, but studying it, Mareak noticed a double lock mechanism. He immediately began making his way back to the others, avoiding the patroling guards by ducking into a side room.
+
+"What's the situation?" Darella asked when he got back.
+
+"They're on alert now." Mareak said. "They're doubling the patrol on this floor, which took roughly 4 minutes to make their way around. I think I found the room we need to break into, but it has a double lock mechanism on it."
+
+"What does that mean?" Yannhorn asked.
+
+"It means it takes 2 to get in. Both locks need to be unlocked together, or else nothing happens. And I imagine that they'll probably be sweeping the rooms once there are 2 patrols up here, so we need to move now, and we have 2, maybe 3 minutes max to get into the room." Mareak pulled his tools out of his pack. "Have either of you ever picked a lock before?"
+
+"No way," Yannhorn said. Darella shook her head. "This is why you're on the team: to pick locks."
+
+"Which of you has more dexterity?" Yannhorn pointed at Darella, who just shrugged. Mareak handed her a few picks. "You'll need these."
+
+"I just told you I don't know how to pick locks," Darella said, though she took them anyways.
+
+"I don't think we have another choice. Let's go." Mareak looked outside of the room, then motioned for the others to come. They scurried through the hallway and ran into another room several doors down. Waiting in silence, Mareak listened for the patrol to pass again. The footsteps came quickly in unison, approached, then led away. After several more second, Mareak poked his head out to see them rounding the corner. He waved the other on again, and they hurried up to the intersection. Looking around, he caught them just as they rounded the far corner.
+
+"Yannhorn, stay here. Warn us if you see the next patrol coming." Yannhorn nodded and made himself small while watching the hallway behind them. "Darella, come on. We have 3 minutes."
+
+They hurried up to the door, where Mareak looked again at the double lock.
+
+"Okay, here's the plan," he began. He pointed at the two locks, then began working on the first one. "I'll pick the first lock up to the last step. Then, we'll switch sets, and you hold that first lock in position until I get the second lock picked. Then, we turn the locks together. Got it?" Darella nodded, and Mareak began working on the first lock.
+
+He held the tension wrench in his numb right hand and worked the pick with his left hand. Despite all of the miscues in the heist so far, Mareak felt relaxed in this moment as he executed one of his most practiced skills.
+
+"Okay, got it," he said as he worked to the back of the lock. "Hold these," he said as he exposed the back of the tools to Darella. She set his second set of tools down and grabbed onto them, but when Mareak released, he heard the lock click.
+
+"Was that bad?" Darella asked, still holding on.
+
+"Yeah, no problem. When you take the one in your right hand, keep applying pressure to it." He took the tools back and began working on the first lock again.
+
+"Sorry," Darella said, but it was unheard as Mareak was wholly focused on the lock again. With some memory of the last positions, Mareak easily set the lock again, then handed the tools back to Darella. She gingerly took the ends of the tools and applied pressure. Mareak released, and nothing happened.
+
+"Thanks," he said as he picked up the second set of tools. He started working on the second lock while Darella held the other tools in place. This lock was also relatively simple, and in a matter of seconds, Mareak was done.
+
+"Okay, ready?" Mareak asked. She looked at him questioningly. "Right, instructions. Together, we need to both press up with the left hand and turn hard with the right hand. On my count. Three, two, one."
+
+On three, Darella pressed and turned. The lock initially gave way, but then she felt it wrench back into its original position. She looked at Mareak in surprise and apology.
+
+"No, no, that was my fault," Mareak said, clearly frustrated. "My hand still isn't working right. Let's start over." At the moment, Mareak heard a foot tap, and he looked over at Yannhorn, who had an urgent look on his face. Mareak gestured for Yannhorn to join them, then began working on the lock again.
+
+Yannhorn moved as quietly as he could and met them at the lock. "They're coming. You have maybe 30 seconds. Any luck?" Darella shushed Yannhorn as Mareak continued to work on the lock. Almost immediately, he looked Darella and down at the lock, and Darella took the tools. Mareak began working on the second lock again.
+
+"Hurry, buddy," Yannhorn said anxiously. Darella gave him an annoyed look. "Sorry," Yannhorn then said. "I mean, we believe in you."
+
+"Ready?" Mareak said. Darella nodded. "Three, two, one."
+
+Both of them turned their hands in synchrony, and the locks moved smoothly. The door lightly pushed in, and Mareak finished opening it, and light flooded into the hallway.
+
+"Let's go," he said as they dashed into the room. Mareak shut the door behind them, quickly, but gently and silenty, in time for the patrol to turn the corner and see an empty hallway.
 
 ---
 
+"What is this place?" Darella quietly asked. Like the main hall, the room shone without torches or candles. There were 5 scrolls hanging on the walls of presumably famous old warriors, and a seating area of couches weere setup on the left. The most notable pieces, however, were on the right side of the room. Along the right wall were several full suits of plated armor standing in a row on the right side of the room. Each one had a large curved, single-edged sword resting in its hands in various positions. In front of them were 2 more items: a pedestal with a red jewel on it, and a stand with a staff.
+
+"Some sitting room," Yannhorn said. He walked to the middle of the room and stared at the 5 suits of armor. "This guy really loves armor, eh? Well, this should be easy. Let's just take the pieces and go." Yannhorn started to move towards the jewel, but Mareak put his arm out to bar the way.
+
+"This isn't right," Mareak said. "This can't be it."
+
+"What do you mean?" Yannhorn pointed at the display area. "They're right there."
+
+"No, this isn't right. This is much too easy."
+
+"Easy? I beat up way too many guard for you for this to be easy."
+
+"I think Mareak is right," Darella said, thinking back. "If you really think about it, if we had managed to get through earlier, we were basically only one double lock away from getting here, and if we had two rogues in our party, this would have been a cake walk. There has to be something more."
+
+"Fine," Yannhorn said. "Do your search thing, then. Mind if I check the bedroom?" He pointed towards the door on the other side of the room. Mareak looked up and down the door and nodded. Yannhorn walked over, opened the door, and looked in. "Nothing interesting," he said back to them.
+
+Mareak began to sweep around the room. He inspected the sitting area first, then made his way across to the suits of armor. Finally, he worked back across to the staff and jewel and looked hard at them.
+
+"Look here," he said to the others after a moment. "Take a long path around the jewel." He kneeled down and pointed to the ground. "The dust along here stops on a line. I think there's some barrier here that we can't see. Maybe a trap."
+
+The others nodded, and waited for further instruction. Mareak asked, "Darella, have any dust in that pouch of yours? For frugality's sake, maybe the more mundane and less magical variety?"
+
+"Sure," she replied. "What do you need it for?" She reached in and pulled out a handful, an amount far greater than the pouch's volume would suggest.
+
+"Toss it at the jewel." Darella looked at him with skepticism, but did it anyways. The dust passed forward towards the jewel but then disappeared suddenly.
+
+"As I thought," Mareak said. "I think this is all an illusion in the middle of the room. I have no idea what's inside there, but it's probably not good. And there's probably an alarm on there if nothing else."
+
+Yannhorn shook his head. "Great. So we made it all the way into this room, and we were duped. What now?"
+
+Mareak paced back and forth deep in thought. Darella watched Mareak, also without answers.
+
+"There must be something here," he thought aloud. "The guards wouldn't have behaved that way if there was nothing here."
+
+"Well, there are a lot of suits of armor," Yannhorn said. "At least we got to see these guys holding their swords funny."
+
+Mareak stopped and turned his head to look at the armor. "That's it, Yannhorn! You're a genius."
+
+Yannhorn looked embarrassed, but nodded anyways. "Yeah, I already knew that. But do you mind explaining what I know back to me?"
+
+Mareak walked up to a suit of armor and repositioned the hands. "This has to be the puzzle. We just need to reset the swords into the right position, and a secret door or something will open." The three of them stepped up to various suits and moved the hands around until they were all held ready and forward. They stepped back and waited, but nothing happened.
+
+"Well that wasn't it," Yannhorn said. "Are you sure that this is the right plan?"
+
+"This has to be it. We must have the positions wrong." Mareak walked back up to a suit and rearranged the grip.
+
+"Mareak, we need a better plan than this," Darella said. "The number of possible permutations of hand positions, even if we allowed for slight variance, is far greater than we can test in a reasonable time. We need a better plan than this."
+
+"Well, I don't know one," Mareak said impatiently. "I'm open to ideas, but this is how I know how to work."
+
+He continued to shuffle the suits while Yannhorn looked down, deep in thought. Darella walked the room again looking for clues. The staff and jewel in the room were definitely fakes, but she knew that there must be something else.
+
+She walked back across to the sitting area, then took a seat on a couch to think. Looking up, she saw the scrolls on the wall and began to scrutinize them more.
+
+"Guys, look over here," she said with anticipated excitment. Yannhorn glanced up, but Mareak continued to play with the suits. "There are 5 scrolls, each with swordsman on them. There are 5 suits of armor. Is this what we're looking for?"
+
+Mareak stopped and turned to look at the scrolls. He nodded his head slowly, then as he understood things better, he nodded more rapidly.
+
+"Yeah, that must be it. Of course!" he exclaimed. Mareak rushed over to look at the scrolls, and they all looked closely to see how the scrolls depicted the warriors: one ready, one slicing, one resting, one stabbing, and one parrying. They rushed back to the other side of the room and rearranged the hands again.
+
+When Darella finished setting the last suit, they stepped back and heard a creak from the bedroom. When they wandered in, they saw a secret door opened to another dark room. 
+
+"I think we found his secret bunker," Darella said as they passed into the new room. Inside, they saw a series of tables with various documents and maps spread out. There were sliding doors on all sides leading off to other rooms, but most importantly, in the middle of the room was another pedestal with a single gem on it that flickered red like a flame. Mareak took a quick survey of the area, then walked up to the pedestal. Without hesitation, he grabbed the jewel, which felt warm to the touch. As he held it, they heard a laugh coming from a side door.
+
 ---
 
-"Congratulations." The voice was low, smooth, sinister. "You found the Flame Diamond. Is that all this disruption was about? A heist?" Dramatically, Kang walked out from behind the wall and looked at the party standing in front of him. He was neither short nor tall but well-built. His beard was trimmed, and he had a single braid down his back. His sharp eyebrows accentuated his intense gaze, and he held his hands clasped in front of him, as though in thought or prayer, or maybe just patience.
+"Congratulations." The voice was low, smooth, sinister. "You found the Flame Diamond. Is that all this disruption was about? A heist?" Dramatically, Kang walked out from one of the sliding doors and looked at the party standing in front of him. He was neither short nor tall but well-built. His beard was trimmed, and he had a single braid down his back. His sharp eyebrows accentuated his intense gaze, and he held his hands clasped in front of him, as though in thought or prayer, or maybe just patience.
 
 Mareak continued to study Kang for a weakness, but found none. "Yeah, this is pretty much it. If that's okay with you, we'll just be leaving now." He slowly moved to put the Flame Diamond in his pack.
 
@@ -157,11 +291,30 @@ In one motion, Mareak tossed over a smooth, black ball towards Kang. Before it r
 
 "We can, and we are." Mareak turned the corner and kept running.
 
-"And what are we going to tell 
+"And what are we going to tell Wen?" Darella asked. Mareak didn't respond, but stopped suddenly at a door.
 
-*
-* find the Flame Diamond, come face-to-face with Kang
-* he already has the agents and threatens to kill them
-* Mareak throws out a smoke bomb and flees
-* in the aftermath, they run through the streets, back to the ship, and just leave
-* not a lot of criticism, and Mareak isn't happy either
+"Knock it down," Mareak said. 
+
+Yannhorn gleefully agreed and in one smooth motion kicked the door. It flew open, and they saw the main hall in front of them. Mareak rushed out and down the stairs with Darella and Yannhorn behind him. The cries of guards and kicked door caught the attention of the guards in the hall, who immediately picked out the three running adventurers. The hall began to quiet as the crowd noticed the adventurers as well.
+
+"Grab my hand," Mareak said to Darella, who complied immediately and took his left hand. "Stick close," Mareak said to Yannhorn, who nodded. "Lights out!" Mareak screamed, and in an instant, the entire hall went dark.
+
+There were screams from the crowd in terror, and Mareak and Yannhorn, who could see perfectly well, saw the chaos of people stumbling and bumping into each other. Mareak ran down the rest of the stairs and straight into the crowd. He shoved back the guests and pushed his way across the hall and towards the main entrance. In the dark, he could see a guard struggling to orient himself and close the door.
+
+Mareak muttered a quick prayer then reach to his belt for his dagger. With his right hand, he fumbled it for a moment but trusted and got a firm grip on the dagger. While running and in one motion, he flung the dagger at the guard. The dagger sagged in flight, but it just caught the guard in the calf, and he fell to the ground, leaving the door slightly ajar.
+
+Closing the distance, Mareak strode forward through the edge of the crowd, opened the door, and rushed out into the open air.
+
+"Let's go," he said. "We're leaving town now."
+
+---
+
+"What an adventure," Darella said as they walked back up the roads of Shermland towards Ryden.
+
+"Indeed," Yannhorn said. "I'm so impressed by how easy the last part of our escape and trip back was. Completely uneventful, like we almost didn't even do it." Mareak nodded in agreement, content at how the rest of it had turned out.
+
+As they reached the top of a hill leading in, however, they looked in the distance for the iconic sideways tower, but instead, they saw a smoking ruin.
+
+"What happened here?" Yannhorn asked. They began to jog towards the tower.
+
+"I think the ending has begun," Darella said solemnly.
